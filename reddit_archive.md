@@ -1,1 +1,9 @@
 
+
+## 2025-09-05
+### r/Silksong — hot (day)
+- [[MOD POST] r/Silksong on Release](https://www.reddit.com/r/Silksong/comments/1n84ydn/mod_post_rsilksong_on_release/)
+- [Thank You r/Silksong + Legacy Flairs? (from your creator)](https://www.reddit.com/r/Silksong/comments/1n7oyhv/thank_you_rsilksong_legacy_flairs_from_your/)
+- [Listen to Hornet](https://www.reddit.com/r/Silksong/comments/1n8pytm/listen_to_hornet/)
+- [Only complaint for Silk Song so far(5h deep)](https://www.reddit.com/r/Silksong/comments/1n8osg1/only_complaint_for_silk_song_so_far5h_deep/)
+- [Petition to say "silk issue" instead of "skill issue"](https://www.reddit.com/r/Silksong/comments/1n8qdty/petition_to_say_silk_issue_instead_of_skill_issue/)
