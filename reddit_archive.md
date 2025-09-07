@@ -10,3 +10,11 @@
 
 ## 2025-09-06
 ### r/Silksong — hot (day)
+
+## 2025-09-07
+### r/Silksong — hot (day)
+- [[MOD POST] r/Silksong on Release](https://www.reddit.com/r/Silksong/comments/1n84ydn/mod_post_rsilksong_on_release/)
+- [Thank You r/Silksong + Legacy Flairs? (from your creator)](https://www.reddit.com/r/Silksong/comments/1n7oyhv/thank_you_rsilksong_legacy_flairs_from_your/)
+- [This is how Silksong feels.](https://www.reddit.com/r/Silksong/comments/1na4si2/this_is_how_silksong_feels/)
+- [Wait wtf it's just..](https://www.reddit.com/r/Silksong/comments/1na3ba1/wait_wtf_its_just/)
+- [Hornet publicly announced a message to negative reviewers:](https://www.reddit.com/r/Silksong/comments/1na6f82/hornet_publicly_announced_a_message_to_negative/)
