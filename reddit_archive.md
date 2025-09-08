@@ -18,3 +18,6 @@
 - [This is how Silksong feels.](https://www.reddit.com/r/Silksong/comments/1na4si2/this_is_how_silksong_feels/)
 - [Wait wtf it's just..](https://www.reddit.com/r/Silksong/comments/1na3ba1/wait_wtf_its_just/)
 - [Hornet publicly announced a message to negative reviewers:](https://www.reddit.com/r/Silksong/comments/1na6f82/hornet_publicly_announced_a_message_to_negative/)
+
+## 2025-09-08
+### r/Silksong — hot (day)
