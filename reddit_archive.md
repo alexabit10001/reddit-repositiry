@@ -29,3 +29,11 @@
 - [Team Cherry is addressing the difficulty](https://www.reddit.com/r/Silksong/comments/1nbrvev/team_cherry_is_addressing_the_difficulty/)
 - [I apologize to the pale king](https://www.reddit.com/r/Silksong/comments/1nbp2r5/i_apologize_to_the_pale_king/)
 - ["Silksong isn't that hard you just have to take breaks" [OC]](https://www.reddit.com/r/Silksong/comments/1nbpmif/silksong_isnt_that_hard_you_just_have_to_take/)
+
+## 2025-09-10
+### r/Silksong — hot (day)
+- [We're hard at work](https://www.reddit.com/r/Silksong/comments/1nbuk1a/were_hard_at_work/)
+- [SUPER Early Game Best Rosary Farm. 4,500+/hr](https://www.reddit.com/r/Silksong/comments/1nbt8ww/super_early_game_best_rosary_farm_4500hr/)
+- [SILKSONG DEBUTS ON METACRITIC WITH A PERFECT 100 SCORE, MAKING IT THE CURRENTLY HIGHEST RATED GAME ON THE ENTIRE SITE!](https://www.reddit.com/r/Silksong/comments/1ncmgby/silksong_debuts_on_metacritic_with_a_perfect_100/)
+- [Silksong’s difficulty has destroyed my marriage and its Team Cherry’s fault](https://www.reddit.com/r/Silksong/comments/1ncmn90/silksongs_difficulty_has_destroyed_my_marriage/)
+- [Wtf is this new update 😭🙏](https://www.reddit.com/r/Silksong/comments/1ncmgsg/wtf_is_this_new_update/)
