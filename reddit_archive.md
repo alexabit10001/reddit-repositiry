@@ -37,3 +37,11 @@
 - [SILKSONG DEBUTS ON METACRITIC WITH A PERFECT 100 SCORE, MAKING IT THE CURRENTLY HIGHEST RATED GAME ON THE ENTIRE SITE!](https://www.reddit.com/r/Silksong/comments/1ncmgby/silksong_debuts_on_metacritic_with_a_perfect_100/)
 - [Silksong’s difficulty has destroyed my marriage and its Team Cherry’s fault](https://www.reddit.com/r/Silksong/comments/1ncmn90/silksongs_difficulty_has_destroyed_my_marriage/)
 - [Wtf is this new update 😭🙏](https://www.reddit.com/r/Silksong/comments/1ncmgsg/wtf_is_this_new_update/)
+
+## 2025-09-11
+### r/Silksong — hot (day)
+- [We're hard at work](https://www.reddit.com/r/Silksong/comments/1nbuk1a/were_hard_at_work/)
+- [SUPER Early Game Best Rosary Farm. 4,500+/hr](https://www.reddit.com/r/Silksong/comments/1nbt8ww/super_early_game_best_rosary_farm_4500hr/)
+- [GUYS THERE IS A CHANCE THIS IS OUR TIME](https://www.reddit.com/r/Silksong/comments/1nddxl9/guys_there_is_a_chance_this_is_our_time/)
+- [I love the game but MAN](https://www.reddit.com/r/Silksong/comments/1ndol1v/i_love_the_game_but_man/)
+- [Expedition 33 Devs Celebrating Silksong](https://www.reddit.com/r/Silksong/comments/1ndhpxh/expedition_33_devs_celebrating_silksong/)
