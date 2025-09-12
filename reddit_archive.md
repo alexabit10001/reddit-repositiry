@@ -45,3 +45,6 @@
 - [GUYS THERE IS A CHANCE THIS IS OUR TIME](https://www.reddit.com/r/Silksong/comments/1nddxl9/guys_there_is_a_chance_this_is_our_time/)
 - [I love the game but MAN](https://www.reddit.com/r/Silksong/comments/1ndol1v/i_love_the_game_but_man/)
 - [Expedition 33 Devs Celebrating Silksong](https://www.reddit.com/r/Silksong/comments/1ndhpxh/expedition_33_devs_celebrating_silksong/)
+
+## 2025-09-12
+### r/Silksong — hot (day)
