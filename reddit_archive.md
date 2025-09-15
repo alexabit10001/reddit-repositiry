@@ -54,3 +54,11 @@
 
 ## 2025-09-14
 ### r/Silksong — hot (day)
+
+## 2025-09-15
+### r/Silksong — hot (day)
+- [Just posted this on Rhollowknight, so you probably saw it there but, In case you didnt. Check out this thing I made! Blacksmith for scale](https://www.reddit.com/r/Silksong/comments/1nf83p7/just_posted_this_on_rhollowknight_so_you_probably/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [DOES THIS GAME EVER END?!?!](https://www.reddit.com/r/Silksong/comments/1nh1tew/does_this_game_ever_end/)
+- [Can someone PLEASE tell me how to beat this thing? Act 2 Boss Spoilers](https://www.reddit.com/r/Silksong/comments/1ngxe6r/can_someone_please_tell_me_how_to_beat_this_thing/)
+- [So we all agree that the Bilewater is the worst area of the game?](https://www.reddit.com/r/Silksong/comments/1nh2b5u/so_we_all_agree_that_the_bilewater_is_the_worst/)
