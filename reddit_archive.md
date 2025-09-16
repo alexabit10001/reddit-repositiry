@@ -62,3 +62,6 @@
 - [DOES THIS GAME EVER END?!?!](https://www.reddit.com/r/Silksong/comments/1nh1tew/does_this_game_ever_end/)
 - [Can someone PLEASE tell me how to beat this thing? Act 2 Boss Spoilers](https://www.reddit.com/r/Silksong/comments/1ngxe6r/can_someone_please_tell_me_how_to_beat_this_thing/)
 - [So we all agree that the Bilewater is the worst area of the game?](https://www.reddit.com/r/Silksong/comments/1nh2b5u/so_we_all_agree_that_the_bilewater_is_the_worst/)
+
+## 2025-09-16
+### r/Silksong — hot (day)
