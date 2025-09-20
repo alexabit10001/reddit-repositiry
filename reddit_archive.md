@@ -74,3 +74,11 @@
 
 ## 2025-09-19
 ### r/Silksong — hot (day)
+
+## 2025-09-20
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Omfg… THE LONG WAITED MOSSBAG LORE VIDEO DROPPED!](https://www.reddit.com/r/Silksong/comments/1nldc4b/omfg_the_long_waited_mossbag_lore_video_dropped/)
+- [Whoever said Double Jump was locked behind a Path of Pain platforming challenge…](https://www.reddit.com/r/Silksong/comments/1nl4mvr/whoever_said_double_jump_was_locked_behind_a_path/)
+- [Enemies switching phases should not cancel out your heal](https://www.reddit.com/r/Silksong/comments/1nlf7hk/enemies_switching_phases_should_not_cancel_out/)
