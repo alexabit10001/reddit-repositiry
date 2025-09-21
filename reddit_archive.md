@@ -82,3 +82,6 @@
 - [Omfg… THE LONG WAITED MOSSBAG LORE VIDEO DROPPED!](https://www.reddit.com/r/Silksong/comments/1nldc4b/omfg_the_long_waited_mossbag_lore_video_dropped/)
 - [Whoever said Double Jump was locked behind a Path of Pain platforming challenge…](https://www.reddit.com/r/Silksong/comments/1nl4mvr/whoever_said_double_jump_was_locked_behind_a_path/)
 - [Enemies switching phases should not cancel out your heal](https://www.reddit.com/r/Silksong/comments/1nlf7hk/enemies_switching_phases_should_not_cancel_out/)
+
+## 2025-09-21
+### r/Silksong — hot (day)
