@@ -103,3 +103,11 @@
 
 ## 2025-09-27
 ### r/Silksong — hot (day)
+
+## 2025-09-28
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [garmond and the ZAZA](https://www.reddit.com/r/Silksong/comments/1nrz4vy/garmond_and_the_zaza/)
+- [TEAM CHERRY ALREADY ADDED AN ACT 4 DLC](https://www.reddit.com/r/Silksong/comments/1ns22tp/team_cherry_already_added_an_act_4_dlc/)
+- [Nobody knows what Silkpost means anymore.](https://www.reddit.com/r/Silksong/comments/1ns0nyt/nobody_knows_what_silkpost_means_anymore/)
