@@ -119,3 +119,6 @@
 - [NO FUCKING WAY WHAT THE HELL](https://www.reddit.com/r/Silksong/comments/1nswz2s/no_fucking_way_what_the_hell/)
 - [Hornet’s most heinous crime](https://www.reddit.com/r/Silksong/comments/1nst94o/hornets_most_heinous_crime/)
 - [SILKSONG IS COMING TO PC ON SEPTEMBER 4TH](https://www.reddit.com/r/Silksong/comments/1nstd5y/silksong_is_coming_to_pc_on_september_4th/)
+
+## 2025-09-30
+### r/Silksong — hot (day)
