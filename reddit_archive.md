@@ -125,3 +125,11 @@
 
 ## 2025-10-01
 ### r/Silksong — hot (day)
+
+## 2025-10-02
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Like Father, like Daughter](https://www.reddit.com/r/Silksong/comments/1nvkllv/like_father_like_daughter/)
+- [Malenia is fucking impossible](https://www.reddit.com/r/Silksong/comments/1nv5lnf/malenia_is_fucking_impossible/)
+- [A cool detail I noticed in Act 3](https://www.reddit.com/r/Silksong/comments/1nvg6bk/a_cool_detail_i_noticed_in_act_3/)
