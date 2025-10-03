@@ -133,3 +133,6 @@
 - [Like Father, like Daughter](https://www.reddit.com/r/Silksong/comments/1nvkllv/like_father_like_daughter/)
 - [Malenia is fucking impossible](https://www.reddit.com/r/Silksong/comments/1nv5lnf/malenia_is_fucking_impossible/)
 - [A cool detail I noticed in Act 3](https://www.reddit.com/r/Silksong/comments/1nvg6bk/a_cool_detail_i_noticed_in_act_3/)
+
+## 2025-10-03
+### r/Silksong — hot (day)
