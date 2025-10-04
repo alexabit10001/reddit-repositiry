@@ -136,3 +136,11 @@
 
 ## 2025-10-03
 ### r/Silksong — hot (day)
+
+## 2025-10-04
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Hollow Knight: Silksong has surpassed 6 million copies sold](https://www.reddit.com/r/Silksong/comments/1nx294m/hollow_knight_silksong_has_surpassed_6_million/)
+- [your feelings matter](https://www.reddit.com/r/Silksong/comments/1nwy0cf/your_feelings_matter/)
+- [My wife is obsessed with Silksong and the Bell Beast, I had this made for her birthday, you think she'll like it?](https://www.reddit.com/r/Silksong/comments/1nx33gb/my_wife_is_obsessed_with_silksong_and_the_bell/)
