@@ -152,3 +152,11 @@
 - [I only just realised why Shermas head is shaped weirdly when he wears the garb](https://www.reddit.com/r/Silksong/comments/1nxsp94/i_only_just_realised_why_shermas_head_is_shaped/)
 - [I could have spared her, but i didn’t](https://www.reddit.com/r/Silksong/comments/1nxwz77/i_could_have_spared_her_but_i_didnt/)
 - [Did anyone else end up taking the back route by complete accident? (A dramatic reenactment)](https://www.reddit.com/r/Silksong/comments/1nxy0xd/did_anyone_else_end_up_taking_the_back_route_by/)
+
+## 2025-10-06
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [dude this fight is IMPOSSIBLEEEEEE](https://www.reddit.com/r/Silksong/comments/1nytlug/dude_this_fight_is_impossibleeeeee/)
+- [Bro thought I wouldnt notice 😭😭😭](https://www.reddit.com/r/Silksong/comments/1nyryj8/bro_thought_i_wouldnt_notice/)
+- [Is there a lore reason why Hornet can't make rosary strings herself? (Art by me)](https://www.reddit.com/r/Silksong/comments/1nyw9rv/is_there_a_lore_reason_why_hornet_cant_make/)
