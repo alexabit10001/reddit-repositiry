@@ -160,3 +160,11 @@
 - [dude this fight is IMPOSSIBLEEEEEE](https://www.reddit.com/r/Silksong/comments/1nytlug/dude_this_fight_is_impossibleeeeee/)
 - [Bro thought I wouldnt notice 😭😭😭](https://www.reddit.com/r/Silksong/comments/1nyryj8/bro_thought_i_wouldnt_notice/)
 - [Is there a lore reason why Hornet can't make rosary strings herself? (Art by me)](https://www.reddit.com/r/Silksong/comments/1nyw9rv/is_there_a_lore_reason_why_hornet_cant_make/)
+
+## 2025-10-07
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [With Great Power, Comes Great 'GIT GUD'](https://www.reddit.com/r/Silksong/comments/1nzo93z/with_great_power_comes_great_git_gud/)
+- [TRRRRROOOOBBIOOO](https://www.reddit.com/r/Silksong/comments/1nzlx5d/trrrrroooobbiooo/)
+- [I felt so fucking bad after playing the needolin to him](https://www.reddit.com/r/Silksong/comments/1nzwe2x/i_felt_so_fucking_bad_after_playing_the_needolin/)
