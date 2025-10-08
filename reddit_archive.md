@@ -168,3 +168,11 @@
 - [With Great Power, Comes Great 'GIT GUD'](https://www.reddit.com/r/Silksong/comments/1nzo93z/with_great_power_comes_great_git_gud/)
 - [TRRRRROOOOBBIOOO](https://www.reddit.com/r/Silksong/comments/1nzlx5d/trrrrroooobbiooo/)
 - [I felt so fucking bad after playing the needolin to him](https://www.reddit.com/r/Silksong/comments/1nzwe2x/i_felt_so_fucking_bad_after_playing_the_needolin/)
+
+## 2025-10-08
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [NO NO NO NO I FORGOT TO RESCUE HIM BEFORE STARTING ACT 3... I AM SO SORRY... PLEASE TELL ME I CAN FIX HIM PLEASE😫😫😫😫😫](https://www.reddit.com/r/Silksong/comments/1o0mmij/no_no_no_no_i_forgot_to_rescue_him_before/)
+- [How I feel when I accidentally walk into this elevator](https://www.reddit.com/r/Silksong/comments/1o0r4fw/how_i_feel_when_i_accidentally_walk_into_this/)
+- [I found a mask shard](https://www.reddit.com/r/Silksong/comments/1o0oas0/i_found_a_mask_shard/)
