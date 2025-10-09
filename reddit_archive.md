@@ -176,3 +176,11 @@
 - [NO NO NO NO I FORGOT TO RESCUE HIM BEFORE STARTING ACT 3... I AM SO SORRY... PLEASE TELL ME I CAN FIX HIM PLEASE😫😫😫😫😫](https://www.reddit.com/r/Silksong/comments/1o0mmij/no_no_no_no_i_forgot_to_rescue_him_before/)
 - [How I feel when I accidentally walk into this elevator](https://www.reddit.com/r/Silksong/comments/1o0r4fw/how_i_feel_when_i_accidentally_walk_into_this/)
 - [I found a mask shard](https://www.reddit.com/r/Silksong/comments/1o0oas0/i_found_a_mask_shard/)
+
+## 2025-10-09
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Trying to understand the games lore without mossbag 🥀](https://www.reddit.com/r/Silksong/comments/1o1g5fv/trying_to_understand_the_games_lore_without/)
+- [NO WEAVER WAY! Team Cherry do it again](https://www.reddit.com/r/Silksong/comments/1o1bpr7/no_weaver_way_team_cherry_do_it_again/)
+- [No like actually what is his purpose in the lore?](https://www.reddit.com/r/Silksong/comments/1o1m3o2/no_like_actually_what_is_his_purpose_in_the_lore/)
