@@ -184,3 +184,11 @@
 - [Trying to understand the games lore without mossbag 🥀](https://www.reddit.com/r/Silksong/comments/1o1g5fv/trying_to_understand_the_games_lore_without/)
 - [NO WEAVER WAY! Team Cherry do it again](https://www.reddit.com/r/Silksong/comments/1o1bpr7/no_weaver_way_team_cherry_do_it_again/)
 - [No like actually what is his purpose in the lore?](https://www.reddit.com/r/Silksong/comments/1o1m3o2/no_like_actually_what_is_his_purpose_in_the_lore/)
+
+## 2025-10-10
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [[OC] Great Taste of Pharloom picture diary](https://www.reddit.com/r/Silksong/comments/1o28dq3/oc_great_taste_of_pharloom_picture_diary/)
+- [Why is Seth SOOOOO difficult...](https://www.reddit.com/r/Silksong/comments/1o2csjd/why_is_seth_sooooo_difficult/)
+- [what did team cherry mean by this?](https://www.reddit.com/r/Silksong/comments/1o27469/what_did_team_cherry_mean_by_this/)
