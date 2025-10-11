@@ -192,3 +192,11 @@
 - [[OC] Great Taste of Pharloom picture diary](https://www.reddit.com/r/Silksong/comments/1o28dq3/oc_great_taste_of_pharloom_picture_diary/)
 - [Why is Seth SOOOOO difficult...](https://www.reddit.com/r/Silksong/comments/1o2csjd/why_is_seth_sooooo_difficult/)
 - [what did team cherry mean by this?](https://www.reddit.com/r/Silksong/comments/1o27469/what_did_team_cherry_mean_by_this/)
+
+## 2025-10-11
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [those little green fuckers stole my needle fck this place I hope it all burns in hell](https://www.reddit.com/r/Silksong/comments/1o351aq/those_little_green_fuckers_stole_my_needle_fck/)
+- [Has anyone found this yet?](https://www.reddit.com/r/Silksong/comments/1o2z3mi/has_anyone_found_this_yet/)
+- [After 100h of gameplay, I only now realize he doesn't have dotty eyebrows and closed eyes...](https://www.reddit.com/r/Silksong/comments/1o316cf/after_100h_of_gameplay_i_only_now_realize_he/)
