@@ -200,3 +200,11 @@
 - [those little green fuckers stole my needle fck this place I hope it all burns in hell](https://www.reddit.com/r/Silksong/comments/1o351aq/those_little_green_fuckers_stole_my_needle_fck/)
 - [Has anyone found this yet?](https://www.reddit.com/r/Silksong/comments/1o2z3mi/has_anyone_found_this_yet/)
 - [After 100h of gameplay, I only now realize he doesn't have dotty eyebrows and closed eyes...](https://www.reddit.com/r/Silksong/comments/1o316cf/after_100h_of_gameplay_i_only_now_realize_he/)
+
+## 2025-10-12
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [NO YOU CAN'T DO THIS TO ME (ACT 3 LATE GAME SPOILERS)](https://www.reddit.com/r/Silksong/comments/1o48p60/no_you_cant_do_this_to_me_act_3_late_game_spoilers/)
+- [(W-Wow, it's M-Miss Hornet! They captured her too? M-Maybe she can take me back to Hallownest! It won't hurt to ask... jeez, I'm so nervous~ I wonder if she remembers me)](https://www.reddit.com/r/Silksong/comments/1o40jhu/wwow_its_mmiss_hornet_they_captured_her_too/)
+- [BF is so invested - neglects our adult time in bedroom](https://www.reddit.com/r/Silksong/comments/1o3yd8i/bf_is_so_invested_neglects_our_adult_time_in/)
