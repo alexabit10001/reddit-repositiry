@@ -208,3 +208,11 @@
 - [NO YOU CAN'T DO THIS TO ME (ACT 3 LATE GAME SPOILERS)](https://www.reddit.com/r/Silksong/comments/1o48p60/no_you_cant_do_this_to_me_act_3_late_game_spoilers/)
 - [(W-Wow, it's M-Miss Hornet! They captured her too? M-Maybe she can take me back to Hallownest! It won't hurt to ask... jeez, I'm so nervous~ I wonder if she remembers me)](https://www.reddit.com/r/Silksong/comments/1o40jhu/wwow_its_mmiss_hornet_they_captured_her_too/)
 - [BF is so invested - neglects our adult time in bedroom](https://www.reddit.com/r/Silksong/comments/1o3yd8i/bf_is_so_invested_neglects_our_adult_time_in/)
+
+## 2025-10-13
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [ARRESTING ME FOR WHAT? I'M NOT ALLOWED TO DEFEND MYSELF? I THOUGHT THIS WAS PHARLOOM? HUH?! ISN'T THIS PHARLOOM? I'M SORRY, I THOUGHT THIS WAS PHARLOOM!?](https://www.reddit.com/r/Silksong/comments/1o4vyz9/arresting_me_for_what_im_not_allowed_to_defend/)
+- [I absolutely hate how forced this moment is...](https://www.reddit.com/r/Silksong/comments/1o4yuqx/i_absolutely_hate_how_forced_this_moment_is/)
+- [Anyone know if there is a way to redo that Shakra quest? She doesn't seems to want to. At least it's cool that all NPCs react to it.](https://www.reddit.com/r/Silksong/comments/1o4ztls/anyone_know_if_there_is_a_way_to_redo_that_shakra/)
