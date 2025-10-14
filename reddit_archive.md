@@ -216,3 +216,11 @@
 - [ARRESTING ME FOR WHAT? I'M NOT ALLOWED TO DEFEND MYSELF? I THOUGHT THIS WAS PHARLOOM? HUH?! ISN'T THIS PHARLOOM? I'M SORRY, I THOUGHT THIS WAS PHARLOOM!?](https://www.reddit.com/r/Silksong/comments/1o4vyz9/arresting_me_for_what_im_not_allowed_to_defend/)
 - [I absolutely hate how forced this moment is...](https://www.reddit.com/r/Silksong/comments/1o4yuqx/i_absolutely_hate_how_forced_this_moment_is/)
 - [Anyone know if there is a way to redo that Shakra quest? She doesn't seems to want to. At least it's cool that all NPCs react to it.](https://www.reddit.com/r/Silksong/comments/1o4ztls/anyone_know_if_there_is_a_way_to_redo_that_shakra/)
+
+## 2025-10-14
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [things that happen in silksong that sound like shitposts](https://www.reddit.com/r/Silksong/comments/1o5srvc/things_that_happen_in_silksong_that_sound_like/)
+- [thank you hornet](https://www.reddit.com/r/Silksong/comments/1o5ngf4/thank_you_hornet/)
+- [Fun fact: you can save these two guys if you defeat Last Judge fast enough](https://www.reddit.com/r/Silksong/comments/1o5p9tp/fun_fact_you_can_save_these_two_guys_if_you/)
