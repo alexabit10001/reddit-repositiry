@@ -224,3 +224,11 @@
 - [things that happen in silksong that sound like shitposts](https://www.reddit.com/r/Silksong/comments/1o5srvc/things_that_happen_in_silksong_that_sound_like/)
 - [thank you hornet](https://www.reddit.com/r/Silksong/comments/1o5ngf4/thank_you_hornet/)
 - [Fun fact: you can save these two guys if you defeat Last Judge fast enough](https://www.reddit.com/r/Silksong/comments/1o5p9tp/fun_fact_you_can_save_these_two_guys_if_you/)
+
+## 2025-10-15
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Had to redo my silksong dating mode run again 💔 (accidentaly deleted the first save)](https://www.reddit.com/r/Silksong/comments/1o6twoa/had_to_redo_my_silksong_dating_mode_run_again/)
+- [This bossfight is 99.1% pure](https://www.reddit.com/r/Silksong/comments/1o6qiue/this_bossfight_is_991_pure/)
+- [The Fourth Chorus is actually Gigantic.](https://www.reddit.com/r/Silksong/comments/1o6q5m6/the_fourth_chorus_is_actually_gigantic/)
