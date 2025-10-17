@@ -240,3 +240,11 @@
 - [IVE COME TO MAKE AN ANNOUNCEMENT](https://www.reddit.com/r/Silksong/comments/1o7jr1a/ive_come_to_make_an_announcement/)
 - [this is the best day of her life](https://www.reddit.com/r/Silksong/comments/1o7f5zv/this_is_the_best_day_of_her_life/)
 - [i am suing u/e1331 for defamation of my image](https://www.reddit.com/r/Silksong/comments/1o7c6u2/i_am_suing_ue1331_for_defamation_of_my_image/)
+
+## 2025-10-17
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Most accurate cosplay Ive ever seen](https://www.reddit.com/r/Silksong/comments/1o8f548/most_accurate_cosplay_ive_ever_seen/)
+- [Leaked Silksong map with all the DLC kinda feels pointlessly big…](https://www.reddit.com/r/Silksong/comments/1o8hhuo/leaked_silksong_map_with_all_the_dlc_kinda_feels/)
+- [She's so insufferable.](https://www.reddit.com/r/Silksong/comments/1o8aefj/shes_so_insufferable/)
