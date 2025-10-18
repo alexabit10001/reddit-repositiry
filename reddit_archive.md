@@ -248,3 +248,11 @@
 - [Most accurate cosplay Ive ever seen](https://www.reddit.com/r/Silksong/comments/1o8f548/most_accurate_cosplay_ive_ever_seen/)
 - [Leaked Silksong map with all the DLC kinda feels pointlessly big…](https://www.reddit.com/r/Silksong/comments/1o8hhuo/leaked_silksong_map_with_all_the_dlc_kinda_feels/)
 - [She's so insufferable.](https://www.reddit.com/r/Silksong/comments/1o8aefj/shes_so_insufferable/)
+
+## 2025-10-18
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Hollow Knight: Silksong | Anime Announcement Teaser — Coming Exclusively to Netflix 2026](https://www.reddit.com/r/Silksong/comments/1o9docl/hollow_knight_silksong_anime_announcement_teaser/)
+- [this gave me goosebumps](https://www.reddit.com/r/Silksong/comments/1o9ah4s/this_gave_me_goosebumps/)
+- [The runbacks in this game are absolutely stupid](https://www.reddit.com/r/Silksong/comments/1o90tkg/the_runbacks_in_this_game_are_absolutely_stupid/)
