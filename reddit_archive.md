@@ -256,3 +256,11 @@
 - [Hollow Knight: Silksong | Anime Announcement Teaser — Coming Exclusively to Netflix 2026](https://www.reddit.com/r/Silksong/comments/1o9docl/hollow_knight_silksong_anime_announcement_teaser/)
 - [this gave me goosebumps](https://www.reddit.com/r/Silksong/comments/1o9ah4s/this_gave_me_goosebumps/)
 - [The runbacks in this game are absolutely stupid](https://www.reddit.com/r/Silksong/comments/1o90tkg/the_runbacks_in_this_game_are_absolutely_stupid/)
+
+## 2025-10-19
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Styx Is Secretly A Nosk](https://www.reddit.com/r/Silksong/comments/1oa7v7p/styx_is_secretly_a_nosk/)
+- [This is what those Silksong DLC map leaks feel like to me](https://www.reddit.com/r/Silksong/comments/1oa479y/this_is_what_those_silksong_dlc_map_leaks_feel/)
+- [Each map in the game is visually unique - here they all are for comparison:](https://www.reddit.com/r/Silksong/comments/1o9wpax/each_map_in_the_game_is_visually_unique_here_they/)
