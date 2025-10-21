@@ -272,3 +272,11 @@
 - [dude there is no way that guy deserves any credit, get his name out](https://www.reddit.com/r/Silksong/comments/1oauy1d/dude_there_is_no_way_that_guy_deserves_any_credit/)
 - [Second playthrough, anyone know what triggered this boss?](https://www.reddit.com/r/Silksong/comments/1oaxcvy/second_playthrough_anyone_know_what_triggered/)
 - [Uh oh‎‎ ‎ ‎ ‎ ‎](https://www.reddit.com/r/Silksong/comments/1oaqhmi/uh_oh/)
+
+## 2025-10-21
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Shakra gets a smol visitor](https://www.reddit.com/r/Silksong/comments/1obpfj3/shakra_gets_a_smol_visitor/)
+- [hornet you need to stop jumping from addiction to addiction and find help](https://www.reddit.com/r/Silksong/comments/1obts1q/hornet_you_need_to_stop_jumping_from_addiction_to/)
+- [Shakra gets a smol visitor](https://www.reddit.com/r/Silksong/comments/1obm9g3/shakra_gets_a_smol_visitor/)
