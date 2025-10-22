@@ -280,3 +280,11 @@
 - [Shakra gets a smol visitor](https://www.reddit.com/r/Silksong/comments/1obpfj3/shakra_gets_a_smol_visitor/)
 - [hornet you need to stop jumping from addiction to addiction and find help](https://www.reddit.com/r/Silksong/comments/1obts1q/hornet_you_need_to_stop_jumping_from_addiction_to/)
 - [Shakra gets a smol visitor](https://www.reddit.com/r/Silksong/comments/1obm9g3/shakra_gets_a_smol_visitor/)
+
+## 2025-10-22
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [This moving platform is literally the coolest thing ever, that you gonna use once and never see again](https://www.reddit.com/r/Silksong/comments/1ocolul/this_moving_platform_is_literally_the_coolest/)
+- [The boss design is not flawless but Contact Damage argument is overblown](https://www.reddit.com/r/Silksong/comments/1ocr9uh/the_boss_design_is_not_flawless_but_contact/)
+- [Cant believe Crawfather let them get away with this](https://www.reddit.com/r/Silksong/comments/1ocii1f/cant_believe_crawfather_let_them_get_away_with/)
