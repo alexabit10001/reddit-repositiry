@@ -304,3 +304,11 @@
 - [this was so fucking random](https://www.reddit.com/r/Silksong/comments/1oe76co/this_was_so_fucking_random/)
 - [Silksong DLC map got leaked!](https://www.reddit.com/r/Silksong/comments/1oe6tnb/silksong_dlc_map_got_leaked/)
 - [I honestly don't think Trobbio knows you're there.](https://www.reddit.com/r/Silksong/comments/1oeevwj/i_honestly_dont_think_trobbio_knows_youre_there/)
+
+## 2025-10-25
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Did you notice a Conductor's body at the edge of Pharloom?](https://www.reddit.com/r/Silksong/comments/1of2slu/did_you_notice_a_conductors_body_at_the_edge_of/)
+- [Why do the Fleas get tormented like this 😭](https://www.reddit.com/r/Silksong/comments/1ofac2d/why_do_the_fleas_get_tormented_like_this/)
+- [you can kill the man](https://www.reddit.com/r/Silksong/comments/1of33bj/you_can_kill_the_man/)
