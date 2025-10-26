@@ -312,3 +312,11 @@
 - [Did you notice a Conductor's body at the edge of Pharloom?](https://www.reddit.com/r/Silksong/comments/1of2slu/did_you_notice_a_conductors_body_at_the_edge_of/)
 - [Why do the Fleas get tormented like this 😭](https://www.reddit.com/r/Silksong/comments/1ofac2d/why_do_the_fleas_get_tormented_like_this/)
 - [you can kill the man](https://www.reddit.com/r/Silksong/comments/1of33bj/you_can_kill_the_man/)
+
+## 2025-10-26
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Gonna be honest, I think the Haunting is scarier than the Infection](https://www.reddit.com/r/Silksong/comments/1og2ijs/gonna_be_honest_i_think_the_haunting_is_scarier/)
+- [I just realized something](https://www.reddit.com/r/Silksong/comments/1ofuth4/i_just_realized_something/)
+- [Why does Lace do that after the fight your ass is not dead get up](https://www.reddit.com/r/Silksong/comments/1ofvb97/why_does_lace_do_that_after_the_fight_your_ass_is/)
