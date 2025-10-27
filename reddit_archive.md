@@ -320,3 +320,11 @@
 - [Gonna be honest, I think the Haunting is scarier than the Infection](https://www.reddit.com/r/Silksong/comments/1og2ijs/gonna_be_honest_i_think_the_haunting_is_scarier/)
 - [I just realized something](https://www.reddit.com/r/Silksong/comments/1ofuth4/i_just_realized_something/)
 - [Why does Lace do that after the fight your ass is not dead get up](https://www.reddit.com/r/Silksong/comments/1ofvb97/why_does_lace_do_that_after_the_fight_your_ass_is/)
+
+## 2025-10-27
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Why didn’t Hornet just Bind the Hollow Knight and get an awesome new Crest? Is she stupid?](https://www.reddit.com/r/Silksong/comments/1oguid9/why_didnt_hornet_just_bind_the_hollow_knight_and/)
+- [Realised I have the free will to draw what I want](https://www.reddit.com/r/Silksong/comments/1oguay6/realised_i_have_the_free_will_to_draw_what_i_want/)
+- [Hear me out, someone gotta be called “Third _____”](https://www.reddit.com/r/Silksong/comments/1ogmhdg/hear_me_out_someone_gotta_be_called_third/)
