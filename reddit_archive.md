@@ -328,3 +328,11 @@
 - [Why didn’t Hornet just Bind the Hollow Knight and get an awesome new Crest? Is she stupid?](https://www.reddit.com/r/Silksong/comments/1oguid9/why_didnt_hornet_just_bind_the_hollow_knight_and/)
 - [Realised I have the free will to draw what I want](https://www.reddit.com/r/Silksong/comments/1oguay6/realised_i_have_the_free_will_to_draw_what_i_want/)
 - [Hear me out, someone gotta be called “Third _____”](https://www.reddit.com/r/Silksong/comments/1ogmhdg/hear_me_out_someone_gotta_be_called_third/)
+
+## 2025-10-28
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Update: My girlfriend who took 10 hours on Lace is popping off and just beat Sister Splinter.](https://www.reddit.com/r/Silksong/comments/1ohr6fw/update_my_girlfriend_who_took_10_hours_on_lace_is/)
+- [grindle. grindle NO. grindle that money is for Sherma's med school DON'T YOU SHAWING DARE YOU WHINY INSIGNIFICANT FU-](https://www.reddit.com/r/Silksong/comments/1ohkuee/grindle_grindle_no_grindle_that_money_is_for/)
+- [Attention to detail is peak](https://www.reddit.com/r/Silksong/comments/1ohkog8/attention_to_detail_is_peak/)
