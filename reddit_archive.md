@@ -336,3 +336,11 @@
 - [Update: My girlfriend who took 10 hours on Lace is popping off and just beat Sister Splinter.](https://www.reddit.com/r/Silksong/comments/1ohr6fw/update_my_girlfriend_who_took_10_hours_on_lace_is/)
 - [grindle. grindle NO. grindle that money is for Sherma's med school DON'T YOU SHAWING DARE YOU WHINY INSIGNIFICANT FU-](https://www.reddit.com/r/Silksong/comments/1ohkuee/grindle_grindle_no_grindle_that_money_is_for/)
 - [Attention to detail is peak](https://www.reddit.com/r/Silksong/comments/1ohkog8/attention_to_detail_is_peak/)
+
+## 2025-10-29
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Why is this removed in every patch? What even is it](https://www.reddit.com/r/Silksong/comments/1oifree/why_is_this_removed_in_every_patch_what_even_is_it/)
+- [The secret dialogue if you get her fourth is really funny.](https://www.reddit.com/r/Silksong/comments/1oihztk/the_secret_dialogue_if_you_get_her_fourth_is/)
+- [GIVE ME THE CREST BIRD](https://www.reddit.com/r/Silksong/comments/1oieepu/give_me_the_crest_bird/)
