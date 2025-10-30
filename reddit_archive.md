@@ -344,3 +344,11 @@
 - [Why is this removed in every patch? What even is it](https://www.reddit.com/r/Silksong/comments/1oifree/why_is_this_removed_in_every_patch_what_even_is_it/)
 - [The secret dialogue if you get her fourth is really funny.](https://www.reddit.com/r/Silksong/comments/1oihztk/the_secret_dialogue_if_you_get_her_fourth_is/)
 - [GIVE ME THE CREST BIRD](https://www.reddit.com/r/Silksong/comments/1oieepu/give_me_the_crest_bird/)
+
+## 2025-10-30
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [Shout out to the GOAT bell station](https://www.reddit.com/r/Silksong/comments/1oj5ebi/shout_out_to_the_goat_bell_station/)
+- [Best boss in the game and its not even close](https://www.reddit.com/r/Silksong/comments/1oj9j8h/best_boss_in_the_game_and_its_not_even_close/)
+- [so good being able to sit in a bench in peace (Silksong late game ability)](https://www.reddit.com/r/Silksong/comments/1ojayub/so_good_being_able_to_sit_in_a_bench_in_peace/)
