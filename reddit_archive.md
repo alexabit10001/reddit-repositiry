@@ -352,3 +352,6 @@
 - [Shout out to the GOAT bell station](https://www.reddit.com/r/Silksong/comments/1oj5ebi/shout_out_to_the_goat_bell_station/)
 - [Best boss in the game and its not even close](https://www.reddit.com/r/Silksong/comments/1oj9j8h/best_boss_in_the_game_and_its_not_even_close/)
 - [so good being able to sit in a bench in peace (Silksong late game ability)](https://www.reddit.com/r/Silksong/comments/1ojayub/so_good_being_able_to_sit_in_a_bench_in_peace/)
+
+## 2025-10-31
+### r/Silksong — hot (day)
