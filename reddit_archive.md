@@ -364,3 +364,11 @@
 
 ## 2025-11-03
 ### r/Silksong — hot (day)
+
+## 2025-11-04
+### r/Silksong — hot (day)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [[MOD POST] Bug Report Thread](https://www.reddit.com/r/Silksong/comments/1nb1j66/mod_post_bug_report_thread/)
+- [What do you mean you use X crest?? 😒](https://www.reddit.com/r/Silksong/comments/1ono1rs/what_do_you_mean_you_use_x_crest/)
+- [Family reunion! How do you see this going?](https://www.reddit.com/r/Silksong/comments/1onikir/family_reunion_how_do_you_see_this_going/)
+- [Why did Team Cherry even make it an option to break my late wife's heart into shell shards as if it were little more than common scrap? Are they evil?](https://www.reddit.com/r/Silksong/comments/1onej24/why_did_team_cherry_even_make_it_an_option_to/)
