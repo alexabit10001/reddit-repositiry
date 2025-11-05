@@ -372,3 +372,11 @@
 - [What do you mean you use X crest?? 😒](https://www.reddit.com/r/Silksong/comments/1ono1rs/what_do_you_mean_you_use_x_crest/)
 - [Family reunion! How do you see this going?](https://www.reddit.com/r/Silksong/comments/1onikir/family_reunion_how_do_you_see_this_going/)
 - [Why did Team Cherry even make it an option to break my late wife's heart into shell shards as if it were little more than common scrap? Are they evil?](https://www.reddit.com/r/Silksong/comments/1onej24/why_did_team_cherry_even_make_it_an_option_to/)
+
+## 2025-11-05
+### r/Silksong — hot (day)
+- [Academic Analysis of Silksong: Participate in Study on Game Design and Experience](https://www.reddit.com/r/Silksong/comments/1omxyui/academic_analysis_of_silksong_participate_in/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [2 months have passed, and I still can’t play it.](https://www.reddit.com/r/Silksong/comments/1oo65da/2_months_have_passed_and_i_still_cant_play_it/)
+- [I don’t see many mention Shakra’s very subtle character development](https://www.reddit.com/r/Silksong/comments/1oogtjf/i_dont_see_many_mention_shakras_very_subtle/)
+- [Decided to draft out a potential map of the scrapped coral area in the current world!](https://www.reddit.com/r/Silksong/comments/1oogzv4/decided_to_draft_out_a_potential_map_of_the/)
