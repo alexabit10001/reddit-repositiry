@@ -388,3 +388,11 @@
 - [are these rosaries packs worth it?](https://www.reddit.com/r/Silksong/comments/1ooya2d/are_these_rosaries_packs_worth_it/)
 - [Silksong bosses ranked by how much damage their strongest attack does](https://www.reddit.com/r/Silksong/comments/1op8dt5/silksong_bosses_ranked_by_how_much_damage_their/)
 - [finally! took me a while to beat them on radiant](https://www.reddit.com/r/Silksong/comments/1op27hs/finally_took_me_a_while_to_beat_them_on_radiant/)
+
+## 2025-11-07
+### r/Silksong — hot (day)
+- [Academic Analysis of Silksong: Participate in Study on Game Design and Experience](https://www.reddit.com/r/Silksong/comments/1omxyui/academic_analysis_of_silksong_participate_in/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [Phew close call](https://www.reddit.com/r/Silksong/comments/1opxdji/phew_close_call/)
+- [So does this mean the DLC is an epilogue??](https://www.reddit.com/r/Silksong/comments/1oq1fia/so_does_this_mean_the_dlc_is_an_epilogue/)
+- [Why didn't hornet pick-up the knight's belongings?](https://www.reddit.com/r/Silksong/comments/1oq9sfd/why_didnt_hornet_pickup_the_knights_belongings/)
