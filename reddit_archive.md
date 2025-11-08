@@ -396,3 +396,11 @@
 - [Phew close call](https://www.reddit.com/r/Silksong/comments/1opxdji/phew_close_call/)
 - [So does this mean the DLC is an epilogue??](https://www.reddit.com/r/Silksong/comments/1oq1fia/so_does_this_mean_the_dlc_is_an_epilogue/)
 - [Why didn't hornet pick-up the knight's belongings?](https://www.reddit.com/r/Silksong/comments/1oq9sfd/why_didnt_hornet_pickup_the_knights_belongings/)
+
+## 2025-11-08
+### r/Silksong — hot (day)
+- [Academic Analysis of Silksong: Participate in Study on Game Design and Experience](https://www.reddit.com/r/Silksong/comments/1omxyui/academic_analysis_of_silksong_participate_in/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [Why does menopause makes bugs big?](https://www.reddit.com/r/Silksong/comments/1or1mkf/why_does_menopause_makes_bugs_big/)
+- [Mossbag new vídeo just dropped](https://www.reddit.com/r/Silksong/comments/1oqwqy9/mossbag_new_vídeo_just_dropped/)
+- [Silksong has 18 more seconds of lore as compared to hollow knight](https://www.reddit.com/r/Silksong/comments/1or07ec/silksong_has_18_more_seconds_of_lore_as_compared/)
