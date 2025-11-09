@@ -404,3 +404,11 @@
 - [Why does menopause makes bugs big?](https://www.reddit.com/r/Silksong/comments/1or1mkf/why_does_menopause_makes_bugs_big/)
 - [Mossbag new vídeo just dropped](https://www.reddit.com/r/Silksong/comments/1oqwqy9/mossbag_new_vídeo_just_dropped/)
 - [Silksong has 18 more seconds of lore as compared to hollow knight](https://www.reddit.com/r/Silksong/comments/1or07ec/silksong_has_18_more_seconds_of_lore_as_compared/)
+
+## 2025-11-09
+### r/Silksong — hot (day)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Academic Analysis of Silksong: Participate in Study on Game Design and Experience](https://www.reddit.com/r/Silksong/comments/1omxyui/academic_analysis_of_silksong_participate_in/)
+- [Lace loses her pin](https://www.reddit.com/r/Silksong/comments/1orotx7/lace_loses_her_pin/)
+- [Smol Hornet visits flea grotto](https://www.reddit.com/r/Silksong/comments/1ort4k1/smol_hornet_visits_flea_grotto/)
+- [I abandoned Sherma in Bone Bottom having never opened the door for him](https://www.reddit.com/r/Silksong/comments/1orugx6/i_abandoned_sherma_in_bone_bottom_having_never/)
