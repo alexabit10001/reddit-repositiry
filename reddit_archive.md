@@ -412,3 +412,11 @@
 - [Lace loses her pin](https://www.reddit.com/r/Silksong/comments/1orotx7/lace_loses_her_pin/)
 - [Smol Hornet visits flea grotto](https://www.reddit.com/r/Silksong/comments/1ort4k1/smol_hornet_visits_flea_grotto/)
 - [I abandoned Sherma in Bone Bottom having never opened the door for him](https://www.reddit.com/r/Silksong/comments/1orugx6/i_abandoned_sherma_in_bone_bottom_having_never/)
+
+## 2025-11-10
+### r/Silksong — hot (day)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Academic Analysis of Silksong: Participate in Study on Game Design and Experience](https://www.reddit.com/r/Silksong/comments/1omxyui/academic_analysis_of_silksong_participate_in/)
+- [Meme I stole off twitter](https://www.reddit.com/r/Silksong/comments/1osq2p8/meme_i_stole_off_twitter/)
+- [Honestly people really over-exaggerate the difficulty of the High Halls’ arena, most of the enemies would die before they could even really attack me](https://www.reddit.com/r/Silksong/comments/1osoisq/honestly_people_really_overexaggerate_the/)
+- [Anyone else irritated by the game's definition of "100%"?](https://www.reddit.com/r/Silksong/comments/1osqbwv/anyone_else_irritated_by_the_games_definition_of/)
