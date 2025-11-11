@@ -420,3 +420,11 @@
 - [Meme I stole off twitter](https://www.reddit.com/r/Silksong/comments/1osq2p8/meme_i_stole_off_twitter/)
 - [Honestly people really over-exaggerate the difficulty of the High Halls’ arena, most of the enemies would die before they could even really attack me](https://www.reddit.com/r/Silksong/comments/1osoisq/honestly_people_really_overexaggerate_the/)
 - [Anyone else irritated by the game's definition of "100%"?](https://www.reddit.com/r/Silksong/comments/1osqbwv/anyone_else_irritated_by_the_games_definition_of/)
+
+## 2025-11-11
+### r/Silksong — hot (day)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [New Hollow knight game Steelvoid has been announced](https://www.reddit.com/r/Silksong/comments/1otil9e/new_hollow_knight_game_steelvoid_has_been/)
+- [Architect crest users realizing they don't actually lose shell shards for craft binding in dream bosses (theyre gonna nuke everything on sight):](https://www.reddit.com/r/Silksong/comments/1otj2bo/architect_crest_users_realizing_they_dont/)
+- [What do you think would happen?](https://www.reddit.com/r/Silksong/comments/1otjviv/what_do_you_think_would_happen/)
