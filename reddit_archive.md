@@ -428,3 +428,11 @@
 - [New Hollow knight game Steelvoid has been announced](https://www.reddit.com/r/Silksong/comments/1otil9e/new_hollow_knight_game_steelvoid_has_been/)
 - [Architect crest users realizing they don't actually lose shell shards for craft binding in dream bosses (theyre gonna nuke everything on sight):](https://www.reddit.com/r/Silksong/comments/1otj2bo/architect_crest_users_realizing_they_dont/)
 - [What do you think would happen?](https://www.reddit.com/r/Silksong/comments/1otjviv/what_do_you_think_would_happen/)
+
+## 2025-11-12
+### r/Silksong — hot (day)
+- [Discussion of Gender and Sexuality](https://www.reddit.com/r/Silksong/comments/1ougrse/discussion_of_gender_and_sexuality/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [High Halls Forum Gauntlet Be Like](https://www.reddit.com/r/Silksong/comments/1oumsz2/high_halls_forum_gauntlet_be_like/)
+- [I couldn't think of a good title](https://www.reddit.com/r/Silksong/comments/1ou7w0m/i_couldnt_think_of_a_good_title/)
+- [Half of all players have found half the fleas](https://www.reddit.com/r/Silksong/comments/1ouddib/half_of_all_players_have_found_half_the_fleas/)
