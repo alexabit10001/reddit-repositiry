@@ -436,3 +436,6 @@
 - [High Halls Forum Gauntlet Be Like](https://www.reddit.com/r/Silksong/comments/1oumsz2/high_halls_forum_gauntlet_be_like/)
 - [I couldn't think of a good title](https://www.reddit.com/r/Silksong/comments/1ou7w0m/i_couldnt_think_of_a_good_title/)
 - [Half of all players have found half the fleas](https://www.reddit.com/r/Silksong/comments/1ouddib/half_of_all_players_have_found_half_the_fleas/)
+
+## 2025-11-13
+### r/Silksong — hot (day)
