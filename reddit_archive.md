@@ -447,3 +447,11 @@
 - [This new Henry Stickmin game is wack](https://www.reddit.com/r/Silksong/comments/1ow9fe1/this_new_henry_stickmin_game_is_wack/)
 - [I guess he's not emo anymore??](https://www.reddit.com/r/Silksong/comments/1ow8nrk/i_guess_hes_not_emo_anymore/)
 - [The SilkPass got revealed today](https://www.reddit.com/r/Silksong/comments/1ow7ek7/the_silkpass_got_revealed_today/)
+
+## 2025-11-15
+### r/Silksong — hot (day)
+- [Discussion of Gender and Sexuality](https://www.reddit.com/r/Silksong/comments/1ougrse/discussion_of_gender_and_sexuality/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Interesting detail I've noticed between two characters from HK & Silksong](https://www.reddit.com/r/Silksong/comments/1ox333u/interesting_detail_ive_noticed_between_two/)
+- [I didn't know that void also consumes reading comprehension](https://www.reddit.com/r/Silksong/comments/1owyn8p/i_didnt_know_that_void_also_consumes_reading/)
+- [homophobic hornet strikes again](https://www.reddit.com/r/Silksong/comments/1owwb68/homophobic_hornet_strikes_again/)
