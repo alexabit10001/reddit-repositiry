@@ -455,3 +455,11 @@
 - [Interesting detail I've noticed between two characters from HK & Silksong](https://www.reddit.com/r/Silksong/comments/1ox333u/interesting_detail_ive_noticed_between_two/)
 - [I didn't know that void also consumes reading comprehension](https://www.reddit.com/r/Silksong/comments/1owyn8p/i_didnt_know_that_void_also_consumes_reading/)
 - [homophobic hornet strikes again](https://www.reddit.com/r/Silksong/comments/1owwb68/homophobic_hornet_strikes_again/)
+
+## 2025-11-16
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Discussion of Gender and Sexuality](https://www.reddit.com/r/Silksong/comments/1ougrse/discussion_of_gender_and_sexuality/)
+- [This fight is just impossible.](https://www.reddit.com/r/Silksong/comments/1oy0r4p/this_fight_is_just_impossible/)
+- [Lace's Drinking Habits](https://www.reddit.com/r/Silksong/comments/1oxs19z/laces_drinking_habits/)
+- [dude i dont care](https://www.reddit.com/r/Silksong/comments/1oxyynx/dude_i_dont_care/)
