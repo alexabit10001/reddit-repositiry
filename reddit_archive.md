@@ -463,3 +463,11 @@
 - [This fight is just impossible.](https://www.reddit.com/r/Silksong/comments/1oy0r4p/this_fight_is_just_impossible/)
 - [Lace's Drinking Habits](https://www.reddit.com/r/Silksong/comments/1oxs19z/laces_drinking_habits/)
 - [dude i dont care](https://www.reddit.com/r/Silksong/comments/1oxyynx/dude_i_dont_care/)
+
+## 2025-11-17
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [TIL you can put Kratt onto spikes.](https://www.reddit.com/r/Silksong/comments/1oyy3pz/til_you_can_put_kratt_onto_spikes/)
+- [Come pray at the Weaver shrine, it's pitch black and there's a robot ghost locked in the basement](https://www.reddit.com/r/Silksong/comments/1oykcns/come_pray_at_the_weaver_shrine_its_pitch_black/)
+- [This was THREE YEARS AGO btw](https://www.reddit.com/r/Silksong/comments/1oyw7kr/this_was_three_years_ago_btw/)
