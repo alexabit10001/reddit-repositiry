@@ -471,3 +471,11 @@
 - [TIL you can put Kratt onto spikes.](https://www.reddit.com/r/Silksong/comments/1oyy3pz/til_you_can_put_kratt_onto_spikes/)
 - [Come pray at the Weaver shrine, it's pitch black and there's a robot ghost locked in the basement](https://www.reddit.com/r/Silksong/comments/1oykcns/come_pray_at_the_weaver_shrine_its_pitch_black/)
 - [This was THREE YEARS AGO btw](https://www.reddit.com/r/Silksong/comments/1oyw7kr/this_was_three_years_ago_btw/)
+
+## 2025-11-18
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Silksong has been nominated for Game of the Year!](https://www.reddit.com/r/Silksong/comments/1ozl4q6/silksong_has_been_nominated_for_game_of_the_year/)
+- [Just watched The Game Awards Nominee Announcement](https://www.reddit.com/r/Silksong/comments/1ozmi93/just_watched_the_game_awards_nominee_announcement/)
+- [Hollow Knight: Silksong has been nominated for ‘Game Of The Year’ at #TheGameAwards](https://www.reddit.com/r/Silksong/comments/1ozm6oj/hollow_knight_silksong_has_been_nominated_for/)
