@@ -479,3 +479,11 @@
 - [Silksong has been nominated for Game of the Year!](https://www.reddit.com/r/Silksong/comments/1ozl4q6/silksong_has_been_nominated_for_game_of_the_year/)
 - [Just watched The Game Awards Nominee Announcement](https://www.reddit.com/r/Silksong/comments/1ozmi93/just_watched_the_game_awards_nominee_announcement/)
 - [Hollow Knight: Silksong has been nominated for ‘Game Of The Year’ at #TheGameAwards](https://www.reddit.com/r/Silksong/comments/1ozm6oj/hollow_knight_silksong_has_been_nominated_for/)
+
+## 2025-11-19
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [WHERE IS IT WHERE DID IT GO](https://www.reddit.com/r/Silksong/comments/1p0hg84/where_is_it_where_did_it_go/)
+- [What is the lore significance of bottom right text? (Act 3 spoilers)](https://www.reddit.com/r/Silksong/comments/1p0jrk5/what_is_the_lore_significance_of_bottom_right/)
+- [Pale beast⠀⠀⠀⠀⠀](https://www.reddit.com/r/Silksong/comments/1p0ndmo/pale_beast/)
