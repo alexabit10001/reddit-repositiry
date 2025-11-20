@@ -487,3 +487,11 @@
 - [WHERE IS IT WHERE DID IT GO](https://www.reddit.com/r/Silksong/comments/1p0hg84/where_is_it_where_did_it_go/)
 - [What is the lore significance of bottom right text? (Act 3 spoilers)](https://www.reddit.com/r/Silksong/comments/1p0jrk5/what_is_the_lore_significance_of_bottom_right/)
 - [Pale beast⠀⠀⠀⠀⠀](https://www.reddit.com/r/Silksong/comments/1p0ndmo/pale_beast/)
+
+## 2025-11-20
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Fun fact: Trobbio has a whooping 77 voice lines he uses in the span of two fights, while Hornet, the literal main character, only has 47](https://www.reddit.com/r/Silksong/comments/1p1dlrx/fun_fact_trobbio_has_a_whooping_77_voice_lines_he/)
+- [Game devs are celebrating each other, We should do the same since we get masterpieces all around.](https://www.reddit.com/r/Silksong/comments/1p12rm8/game_devs_are_celebrating_each_other_we_should_do/)
+- [Is it just me, or are mottled Skarr oddly immune to the haunting?](https://www.reddit.com/r/Silksong/comments/1p19ur9/is_it_just_me_or_are_mottled_skarr_oddly_immune/)
