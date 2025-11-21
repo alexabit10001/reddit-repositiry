@@ -495,3 +495,11 @@
 - [Fun fact: Trobbio has a whooping 77 voice lines he uses in the span of two fights, while Hornet, the literal main character, only has 47](https://www.reddit.com/r/Silksong/comments/1p1dlrx/fun_fact_trobbio_has_a_whooping_77_voice_lines_he/)
 - [Game devs are celebrating each other, We should do the same since we get masterpieces all around.](https://www.reddit.com/r/Silksong/comments/1p12rm8/game_devs_are_celebrating_each_other_we_should_do/)
 - [Is it just me, or are mottled Skarr oddly immune to the haunting?](https://www.reddit.com/r/Silksong/comments/1p19ur9/is_it_just_me_or_are_mottled_skarr_oddly_immune/)
+
+## 2025-11-21
+### r/Silksong — hot (day)
+- [Beating Grandmother Silk with base needle (accidentally)](https://www.reddit.com/r/Silksong/comments/1oxcewg/beating_grandmother_silk_with_base_needle/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [SILKSONG HAS WON GAME OF THE YEAR AT THE JOYSTICK AWARDS](https://www.reddit.com/r/Silksong/comments/1p29yhp/silksong_has_won_game_of_the_year_at_the_joystick/)
+- [Hollow Knight: Silksong wins the award for Best Indie Game (Self-Published) at Golden Joystick Awards 2025](https://www.reddit.com/r/Silksong/comments/1p27yf1/hollow_knight_silksong_wins_the_award_for_best/)
+- [I could make a 20mins compilation of this thing trickshotting my ass.](https://www.reddit.com/r/Silksong/comments/1p29laq/i_could_make_a_20mins_compilation_of_this_thing/)
