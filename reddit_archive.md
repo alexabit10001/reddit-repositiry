@@ -503,3 +503,6 @@
 - [SILKSONG HAS WON GAME OF THE YEAR AT THE JOYSTICK AWARDS](https://www.reddit.com/r/Silksong/comments/1p29yhp/silksong_has_won_game_of_the_year_at_the_joystick/)
 - [Hollow Knight: Silksong wins the award for Best Indie Game (Self-Published) at Golden Joystick Awards 2025](https://www.reddit.com/r/Silksong/comments/1p27yf1/hollow_knight_silksong_wins_the_award_for_best/)
 - [I could make a 20mins compilation of this thing trickshotting my ass.](https://www.reddit.com/r/Silksong/comments/1p29laq/i_could_make_a_20mins_compilation_of_this_thing/)
+
+## 2025-11-22
+### r/Silksong — hot (day)
