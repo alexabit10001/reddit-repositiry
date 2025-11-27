@@ -523,3 +523,11 @@
 - [(Act 3) crazy new Beast crest interaction](https://www.reddit.com/r/Silksong/comments/1p6nx7l/act_3_crazy_new_beast_crest_interaction/)
 - [Gods in Hollow Knight ranked by how they treat you if you worship them](https://www.reddit.com/r/Silksong/comments/1p6d52p/gods_in_hollow_knight_ranked_by_how_they_treat/)
 - [So what is Fayforn?](https://www.reddit.com/r/Silksong/comments/1p6n1ui/so_what_is_fayforn/)
+
+## 2025-11-27
+### r/Silksong — hot (day)
+- [Someone's making a hand drawn Hollow Knight card game](https://www.reddit.com/r/Silksong/comments/1p3j5dr/someones_making_a_hand_drawn_hollow_knight_card/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [In progress: the other weavers](https://www.reddit.com/r/Silksong/comments/1p7fqdj/in_progress_the_other_weavers/)
+- [Here’s two plans I think the Weavers could’ve used instead](https://www.reddit.com/r/Silksong/comments/1p7ag9f/heres_two_plans_i_think_the_weavers_couldve_used/)
+- [Bell eater "Godhome" fight theory](https://www.reddit.com/r/Silksong/comments/1p79pmw/bell_eater_godhome_fight_theory/)
