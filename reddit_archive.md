@@ -531,3 +531,11 @@
 - [In progress: the other weavers](https://www.reddit.com/r/Silksong/comments/1p7fqdj/in_progress_the_other_weavers/)
 - [Here’s two plans I think the Weavers could’ve used instead](https://www.reddit.com/r/Silksong/comments/1p7ag9f/heres_two_plans_i_think_the_weavers_couldve_used/)
 - [Bell eater "Godhome" fight theory](https://www.reddit.com/r/Silksong/comments/1p79pmw/bell_eater_godhome_fight_theory/)
+
+## 2025-11-28
+### r/Silksong — hot (day)
+- [Someone's making a hand drawn Hollow Knight card game](https://www.reddit.com/r/Silksong/comments/1p3j5dr/someones_making_a_hand_drawn_hollow_knight_card/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [With mods for silksong starting to roll out, I’m particularly hoping for a skin using the Knight](https://www.reddit.com/r/Silksong/comments/1p8ds1l/with_mods_for_silksong_starting_to_roll_out_im/)
+- [Fanon VS canon Lace](https://www.reddit.com/r/Silksong/comments/1p88uq6/fanon_vs_canon_lace/)
+- [Easy Silksong Speedrun Guide](https://www.reddit.com/r/Silksong/comments/1p89bsv/easy_silksong_speedrun_guide/)
