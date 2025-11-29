@@ -539,3 +539,11 @@
 - [With mods for silksong starting to roll out, I’m particularly hoping for a skin using the Knight](https://www.reddit.com/r/Silksong/comments/1p8ds1l/with_mods_for_silksong_starting_to_roll_out_im/)
 - [Fanon VS canon Lace](https://www.reddit.com/r/Silksong/comments/1p88uq6/fanon_vs_canon_lace/)
 - [Easy Silksong Speedrun Guide](https://www.reddit.com/r/Silksong/comments/1p89bsv/easy_silksong_speedrun_guide/)
+
+## 2025-11-29
+### r/Silksong — hot (day)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [PSA - Silksong is Here and So is the Wrist Pain! Here's how you can fix it.](https://www.reddit.com/r/Silksong/comments/1ne1ni0/psa_silksong_is_here_and_so_is_the_wrist_pain/)
+- [The final version of my extended Silksong Map!](https://www.reddit.com/r/Silksong/comments/1p96tyx/the_final_version_of_my_extended_silksong_map/)
+- [Lace coaches Ghost in fencing](https://www.reddit.com/r/Silksong/comments/1p8x8j9/lace_coaches_ghost_in_fencing/)
+- [Team Cherry CONFIRMS that Sharpe and all other cut backer content will return... but not the Coral Gorge.](https://www.reddit.com/r/Silksong/comments/1p903qw/team_cherry_confirms_that_sharpe_and_all_other/)
