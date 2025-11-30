@@ -547,3 +547,11 @@
 - [The final version of my extended Silksong Map!](https://www.reddit.com/r/Silksong/comments/1p96tyx/the_final_version_of_my_extended_silksong_map/)
 - [Lace coaches Ghost in fencing](https://www.reddit.com/r/Silksong/comments/1p8x8j9/lace_coaches_ghost_in_fencing/)
 - [Team Cherry CONFIRMS that Sharpe and all other cut backer content will return... but not the Coral Gorge.](https://www.reddit.com/r/Silksong/comments/1p903qw/team_cherry_confirms_that_sharpe_and_all_other/)
+
+## 2025-11-30
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Team Cherry on Mossbag (and more accurately the community's reaction)](https://www.reddit.com/r/Silksong/comments/1p9rw8k/team_cherry_on_mossbag_and_more_accurately_the/)
+- [brand new crest meta just dropped](https://www.reddit.com/r/Silksong/comments/1p9sk2v/brand_new_crest_meta_just_dropped/)
+- [Just lost my 94% steel soul run bc of my little brother](https://www.reddit.com/r/Silksong/comments/1p9rcum/just_lost_my_94_steel_soul_run_bc_of_my_little/)
