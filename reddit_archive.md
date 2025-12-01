@@ -555,3 +555,11 @@
 - [Team Cherry on Mossbag (and more accurately the community's reaction)](https://www.reddit.com/r/Silksong/comments/1p9rw8k/team_cherry_on_mossbag_and_more_accurately_the/)
 - [brand new crest meta just dropped](https://www.reddit.com/r/Silksong/comments/1p9sk2v/brand_new_crest_meta_just_dropped/)
 - [Just lost my 94% steel soul run bc of my little brother](https://www.reddit.com/r/Silksong/comments/1p9rcum/just_lost_my_94_steel_soul_run_bc_of_my_little/)
+
+## 2025-12-01
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Only two directions left to discover. I would say we go to the Forbidden West](https://www.reddit.com/r/Silksong/comments/1pauscu/only_two_directions_left_to_discover_i_would_say/)
+- [If Silksong was allowed one swear word, where would you put it?](https://www.reddit.com/r/Silksong/comments/1paswpw/if_silksong_was_allowed_one_swear_word_where/)
+- [Is Team Cherry stupid?](https://www.reddit.com/r/Silksong/comments/1papos6/is_team_cherry_stupid/)
