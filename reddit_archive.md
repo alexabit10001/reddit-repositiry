@@ -571,3 +571,11 @@
 - [I drew the other 5 GOTY nominees as Silksong bugs!](https://www.reddit.com/r/Silksong/comments/1pbmipj/i_drew_the_other_5_goty_nominees_as_silksong_bugs/)
 - [Found it on discord](https://www.reddit.com/r/Silksong/comments/1pb9pbr/found_it_on_discord/)
 - [Team Cherry says it's "unfortunate" that Silksong launch disrupted other indies](https://www.reddit.com/r/Silksong/comments/1pbgj3v/team_cherry_says_its_unfortunate_that_silksong/)
+
+## 2025-12-03
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [What were people expecting?](https://www.reddit.com/r/Silksong/comments/1pcie0u/what_were_people_expecting/)
+- [Team Cherry will not be Attending the Game Awards](https://www.reddit.com/r/Silksong/comments/1pcerpk/team_cherry_will_not_be_attending_the_game_awards/)
+- [You can see and startle Nuu through the Halfway Home's windows. Nice little detail!](https://www.reddit.com/r/Silksong/comments/1pccuub/you_can_see_and_startle_nuu_through_the_halfway/)
