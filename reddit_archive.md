@@ -579,3 +579,11 @@
 - [What were people expecting?](https://www.reddit.com/r/Silksong/comments/1pcie0u/what_were_people_expecting/)
 - [Team Cherry will not be Attending the Game Awards](https://www.reddit.com/r/Silksong/comments/1pcerpk/team_cherry_will_not_be_attending_the_game_awards/)
 - [You can see and startle Nuu through the Halfway Home's windows. Nice little detail!](https://www.reddit.com/r/Silksong/comments/1pccuub/you_can_see_and_startle_nuu_through_the_halfway/)
+
+## 2025-12-04
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Made some Crest designs :)](https://www.reddit.com/r/Silksong/comments/1pd7ek0/made_some_crest_designs/)
+- [After going back to HK, I see why there are so many enemy gauntlets in Silksong](https://www.reddit.com/r/Silksong/comments/1pda9z2/after_going_back_to_hk_i_see_why_there_are_so/)
+- [Dream Nail or Needolin. Which Do You Like More?](https://www.reddit.com/r/Silksong/comments/1pd2vhl/dream_nail_or_needolin_which_do_you_like_more/)
