@@ -587,3 +587,11 @@
 - [Made some Crest designs :)](https://www.reddit.com/r/Silksong/comments/1pd7ek0/made_some_crest_designs/)
 - [After going back to HK, I see why there are so many enemy gauntlets in Silksong](https://www.reddit.com/r/Silksong/comments/1pda9z2/after_going_back_to_hk_i_see_why_there_are_so/)
 - [Dream Nail or Needolin. Which Do You Like More?](https://www.reddit.com/r/Silksong/comments/1pd2vhl/dream_nail_or_needolin_which_do_you_like_more/)
+
+## 2025-12-05
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- ["We are here" updated](https://www.reddit.com/r/Silksong/comments/1pe3gc0/we_are_here_updated/)
+- [lol the mods of r/hollowknight memes deleted my post BECAUSE I STOLE It FROM MYSELF](https://www.reddit.com/r/Silksong/comments/1pe35rc/lol_the_mods_of_rhollowknight_memes_deleted_my/)
+- [lace needs some silk](https://www.reddit.com/r/Silksong/comments/1pe9t2d/lace_needs_some_silk/)
