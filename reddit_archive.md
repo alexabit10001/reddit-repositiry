@@ -595,3 +595,11 @@
 - ["We are here" updated](https://www.reddit.com/r/Silksong/comments/1pe3gc0/we_are_here_updated/)
 - [lol the mods of r/hollowknight memes deleted my post BECAUSE I STOLE It FROM MYSELF](https://www.reddit.com/r/Silksong/comments/1pe35rc/lol_the_mods_of_rhollowknight_memes_deleted_my/)
 - [lace needs some silk](https://www.reddit.com/r/Silksong/comments/1pe9t2d/lace_needs_some_silk/)
+
+## 2025-12-06
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Made my husband this chonkster](https://www.reddit.com/r/Silksong/comments/1pf9v5g/made_my_husband_this_chonkster/)
+- [Lost Verdania Has a Night Mode](https://www.reddit.com/r/Silksong/comments/1pf703n/lost_verdania_has_a_night_mode/)
+- [hornet is NOT beating the allegations](https://www.reddit.com/r/Silksong/comments/1pf0vis/hornet_is_not_beating_the_allegations/)
