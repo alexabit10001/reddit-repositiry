@@ -603,3 +603,11 @@
 - [Made my husband this chonkster](https://www.reddit.com/r/Silksong/comments/1pf9v5g/made_my_husband_this_chonkster/)
 - [Lost Verdania Has a Night Mode](https://www.reddit.com/r/Silksong/comments/1pf703n/lost_verdania_has_a_night_mode/)
 - [hornet is NOT beating the allegations](https://www.reddit.com/r/Silksong/comments/1pf0vis/hornet_is_not_beating_the_allegations/)
+
+## 2025-12-07
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [My lace plush arrived](https://www.reddit.com/r/Silksong/comments/1pfwwb2/my_lace_plush_arrived/)
+- [Hottest characters according to the fandom](https://www.reddit.com/r/Silksong/comments/1pfykn9/hottest_characters_according_to_the_fandom/)
+- [Are Tipp and Pill Verdanian?](https://www.reddit.com/r/Silksong/comments/1pfw6gl/are_tipp_and_pill_verdanian/)
