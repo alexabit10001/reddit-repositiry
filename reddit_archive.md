@@ -619,3 +619,11 @@
 - [Is my game bugged? This scene’s been going on for over 10 minutes and I can’t skip it.](https://www.reddit.com/r/Silksong/comments/1pgrvad/is_my_game_bugged_this_scenes_been_going_on_for/)
 - [Unique Shakra Dialog if you reach Mt. Fay without a quill.](https://www.reddit.com/r/Silksong/comments/1pgvrg1/unique_shakra_dialog_if_you_reach_mt_fay_without/)
 - [Check out this incredible map of Pharloom by Ryukisensei. https://x.com/Ryuki_Sensei09/status/1996928368583807309/photo/1](https://www.reddit.com/r/Silksong/comments/1pgdynm/check_out_this_incredible_map_of_pharloom_by/)
+
+## 2025-12-09
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [(ENDING SPOILERS) my idea of how the Godhome DLC Final Boss could go](https://www.reddit.com/r/Silksong/comments/1phie16/ending_spoilers_my_idea_of_how_the_godhome_dlc/)
+- [Made some yellow tools, forgive the scrappy art on the last two](https://www.reddit.com/r/Silksong/comments/1phetnn/made_some_yellow_tools_forgive_the_scrappy_art_on/)
+- [Silksong is a finalist in the Player’s Choice Game Award! Vote if you get a chance](https://www.reddit.com/r/Silksong/comments/1phhv0f/silksong_is_a_finalist_in_the_players_choice_game/)
