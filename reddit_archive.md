@@ -627,3 +627,6 @@
 - [(ENDING SPOILERS) my idea of how the Godhome DLC Final Boss could go](https://www.reddit.com/r/Silksong/comments/1phie16/ending_spoilers_my_idea_of_how_the_godhome_dlc/)
 - [Made some yellow tools, forgive the scrappy art on the last two](https://www.reddit.com/r/Silksong/comments/1phetnn/made_some_yellow_tools_forgive_the_scrappy_art_on/)
 - [Silksong is a finalist in the Player’s Choice Game Award! Vote if you get a chance](https://www.reddit.com/r/Silksong/comments/1phhv0f/silksong_is_a_finalist_in_the_players_choice_game/)
+
+## 2025-12-10
+### r/Silksong — hot (day)
