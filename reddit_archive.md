@@ -630,3 +630,11 @@
 
 ## 2025-12-10
 ### r/Silksong — hot (day)
+
+## 2025-12-11
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [I made The Citadel in Blender](https://www.reddit.com/r/Silksong/comments/1pj25a2/i_made_the_citadel_in_blender/)
+- [Muscular Shakra (@Boopie1002)](https://www.reddit.com/r/Silksong/comments/1pj5bys/muscular_shakra_boopie1002/)
+- [[devi-dizz] She's actually a tiny lil bitty bit taller 🤔](https://www.reddit.com/r/Silksong/comments/1pj1lbt/devidizz_shes_actually_a_tiny_lil_bitty_bit_taller/)
