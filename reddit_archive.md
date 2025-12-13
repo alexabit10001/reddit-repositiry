@@ -646,3 +646,11 @@
 - [Supergiant Games, the Hades and Hades II devs, made this art piece to celebrate the GOTY Nominees](https://www.reddit.com/r/Silksong/comments/1pk84r1/supergiant_games_the_hades_and_hades_ii_devs_made/)
 - [[marti-lizzard] fluffy](https://www.reddit.com/r/Silksong/comments/1pjwpa3/martilizzard_fluffy/)
 - [Just hit the most badass move using parry](https://www.reddit.com/r/Silksong/comments/1pk97jd/just_hit_the_most_badass_move_using_parry/)
+
+## 2025-12-13
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Hornet and Lace at the Game Awards Red Carpet (by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1pl54j8/hornet_and_lace_at_the_game_awards_red_carpet_by/)
+- [Who cares about the Game Awards. Here's a video of the Final Boss Fight being beaten with an All Hit Build (No Movement & No Needle)](https://www.reddit.com/r/Silksong/comments/1pl0x2y/who_cares_about_the_game_awards_heres_a_video_of/)
+- [True story, can confirm](https://www.reddit.com/r/Silksong/comments/1pkrjqh/true_story_can_confirm/)
