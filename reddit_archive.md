@@ -654,3 +654,11 @@
 - [Hornet and Lace at the Game Awards Red Carpet (by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1pl54j8/hornet_and_lace_at_the_game_awards_red_carpet_by/)
 - [Who cares about the Game Awards. Here's a video of the Final Boss Fight being beaten with an All Hit Build (No Movement & No Needle)](https://www.reddit.com/r/Silksong/comments/1pl0x2y/who_cares_about_the_game_awards_heres_a_video_of/)
 - [True story, can confirm](https://www.reddit.com/r/Silksong/comments/1pkrjqh/true_story_can_confirm/)
+
+## 2025-12-14
+### r/Silksong — hot (day)
+- [GOTY 2025 may not have went how we expected it to but it's still okay :)](https://www.reddit.com/r/Silksong/comments/1plcikg/goty_2025_may_not_have_went_how_we_expected_it_to/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Guys i don't think they are doing too well](https://www.reddit.com/r/Silksong/comments/1ploen1/guys_i_dont_think_they_are_doing_too_well/)
+- [[ratatosk777] Hornet develops separation anxiety.](https://www.reddit.com/r/Silksong/comments/1plni56/ratatosk777_hornet_develops_separation_anxiety/)
+- [6 years of waiting just for the game to look like this. So disappointed, refunded after 5 minutes. Don't understand why are y'all hyping it up.](https://www.reddit.com/r/Silksong/comments/1plpi3j/6_years_of_waiting_just_for_the_game_to_look_like/)
