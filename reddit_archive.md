@@ -662,3 +662,11 @@
 - [Guys i don't think they are doing too well](https://www.reddit.com/r/Silksong/comments/1ploen1/guys_i_dont_think_they_are_doing_too_well/)
 - [[ratatosk777] Hornet develops separation anxiety.](https://www.reddit.com/r/Silksong/comments/1plni56/ratatosk777_hornet_develops_separation_anxiety/)
 - [6 years of waiting just for the game to look like this. So disappointed, refunded after 5 minutes. Don't understand why are y'all hyping it up.](https://www.reddit.com/r/Silksong/comments/1plpi3j/6_years_of_waiting_just_for_the_game_to_look_like/)
+
+## 2025-12-15
+### r/Silksong — hot (day)
+- [GOTY 2025 may not have went how we expected it to but it's still okay :)](https://www.reddit.com/r/Silksong/comments/1plcikg/goty_2025_may_not_have_went_how_we_expected_it_to/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Matthew Griffin (Leth) is streaming an old 2023 build of Silksong on Tuesday! We'll finally get the full picture on Strung to Serve...](https://www.reddit.com/r/Silksong/comments/1pmqf6a/matthew_griffin_leth_is_streaming_an_old_2023/)
+- [Act III Ending be like [OC]](https://www.reddit.com/r/Silksong/comments/1pmnqh7/act_iii_ending_be_like_oc/)
+- [Just Following Up On A Comment that I made Eight Months Ago.](https://www.reddit.com/r/Silksong/comments/1pmngdk/just_following_up_on_a_comment_that_i_made_eight/)
