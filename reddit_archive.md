@@ -678,3 +678,11 @@
 - [We still have two weeks before Team Cherry misses their 2025 deadline. I'm starting to lose hope](https://www.reddit.com/r/Silksong/comments/1pncirz/we_still_have_two_weeks_before_team_cherry_misses/)
 - [[minart-was-taken] Meet your sibling-in-law](https://www.reddit.com/r/Silksong/comments/1pnf53z/minartwastaken_meet_your_siblinginlaw/)
 - [ANNOUNCED: Edge Magazine Issue #419 (February 2026) - Details the upcoming first DLC Pack for Hollow Knight: Silksong](https://www.reddit.com/r/Silksong/comments/1pnky7y/announced_edge_magazine_issue_419_february_2026/)
+
+## 2025-12-17
+### r/Silksong — hot (day)
+- [WE WON GUYS! SEA OF SORROW SILKSONG TOMORROW](https://www.reddit.com/r/Silksong/comments/1pnofs8/we_won_guys_sea_of_sorrow_silksong_tomorrow/)
+- [GOTY 2025 may not have went how we expected it to but it's still okay :)](https://www.reddit.com/r/Silksong/comments/1plcikg/goty_2025_may_not_have_went_how_we_expected_it_to/)
+- [[MOD POST] SORROWPOST FLAIR IS HERE! REMEMBER TO USE IT PROPERLY!](https://www.reddit.com/r/Silksong/comments/1po8hvu/mod_post_sorrowpost_flair_is_here_remember_to_use/)
+- [Yes Team Cherry](https://www.reddit.com/r/Silksong/comments/1po9q9k/yes_team_cherry/)
+- [Are you f*ck*ng serious? 😒](https://www.reddit.com/r/Silksong/comments/1po19ko/are_you_fckng_serious/)
