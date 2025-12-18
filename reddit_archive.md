@@ -686,3 +686,11 @@
 - [[MOD POST] SORROWPOST FLAIR IS HERE! REMEMBER TO USE IT PROPERLY!](https://www.reddit.com/r/Silksong/comments/1po8hvu/mod_post_sorrowpost_flair_is_here_remember_to_use/)
 - [Yes Team Cherry](https://www.reddit.com/r/Silksong/comments/1po9q9k/yes_team_cherry/)
 - [Are you f*ck*ng serious? 😒](https://www.reddit.com/r/Silksong/comments/1po19ko/are_you_fckng_serious/)
+
+## 2025-12-18
+### r/Silksong — hot (day)
+- [WE WON GUYS! SEA OF SORROW SILKSONG TOMORROW](https://www.reddit.com/r/Silksong/comments/1pnofs8/we_won_guys_sea_of_sorrow_silksong_tomorrow/)
+- [GOTY 2025 may not have went how we expected it to but it's still okay :)](https://www.reddit.com/r/Silksong/comments/1plcikg/goty_2025_may_not_have_went_how_we_expected_it_to/)
+- [So, just for clarifying: TEAM CHERRY ISN'T USING AI. This is a shitpost made by me that got a little too big.](https://www.reddit.com/r/Silksong/comments/1pozas3/so_just_for_clarifying_team_cherry_isnt_using_ai/)
+- [Hornet needs to drown her sorrows after tga...in alcohol](https://www.reddit.com/r/Silksong/comments/1pp7asv/hornet_needs_to_drown_her_sorrows_after_tgain/)
+- [fun fact: if you leave of the first sentinel until act 3, you can find them in bile water and get the reserve bind FOR FREE without having to fight him.](https://www.reddit.com/r/Silksong/comments/1pp5j9o/fun_fact_if_you_leave_of_the_first_sentinel_until/)
