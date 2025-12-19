@@ -694,3 +694,11 @@
 - [So, just for clarifying: TEAM CHERRY ISN'T USING AI. This is a shitpost made by me that got a little too big.](https://www.reddit.com/r/Silksong/comments/1pozas3/so_just_for_clarifying_team_cherry_isnt_using_ai/)
 - [Hornet needs to drown her sorrows after tga...in alcohol](https://www.reddit.com/r/Silksong/comments/1pp7asv/hornet_needs_to_drown_her_sorrows_after_tgain/)
 - [fun fact: if you leave of the first sentinel until act 3, you can find them in bile water and get the reserve bind FOR FREE without having to fight him.](https://www.reddit.com/r/Silksong/comments/1pp5j9o/fun_fact_if_you_leave_of_the_first_sentinel_until/)
+
+## 2025-12-19
+### r/Silksong — hot (day)
+- [WE WON GUYS! SEA OF SORROW SILKSONG TOMORROW](https://www.reddit.com/r/Silksong/comments/1pnofs8/we_won_guys_sea_of_sorrow_silksong_tomorrow/)
+- [GOTY 2025 may not have went how we expected it to but it's still okay :)](https://www.reddit.com/r/Silksong/comments/1plcikg/goty_2025_may_not_have_went_how_we_expected_it_to/)
+- [Silksong is free on Steam until midnight](https://www.reddit.com/r/Silksong/comments/1pq16gf/silksong_is_free_on_steam_until_midnight/)
+- [bro the sorrowed beastly in the beta test is SO ENOYING! this man really is silksong version of the eternal ordeal. what a pain in the shaw.](https://www.reddit.com/r/Silksong/comments/1ppvkf9/bro_the_sorrowed_beastly_in_the_beta_test_is_so/)
+- [SILKSONG DLC FINAL BOSS LEAKED](https://www.reddit.com/r/Silksong/comments/1ppta27/silksong_dlc_final_boss_leaked/)
