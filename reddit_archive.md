@@ -702,3 +702,11 @@
 - [Silksong is free on Steam until midnight](https://www.reddit.com/r/Silksong/comments/1pq16gf/silksong_is_free_on_steam_until_midnight/)
 - [bro the sorrowed beastly in the beta test is SO ENOYING! this man really is silksong version of the eternal ordeal. what a pain in the shaw.](https://www.reddit.com/r/Silksong/comments/1ppvkf9/bro_the_sorrowed_beastly_in_the_beta_test_is_so/)
 - [SILKSONG DLC FINAL BOSS LEAKED](https://www.reddit.com/r/Silksong/comments/1ppta27/silksong_dlc_final_boss_leaked/)
+
+## 2025-12-20
+### r/Silksong — hot (day)
+- [WE WON GUYS! SEA OF SORROW SILKSONG TOMORROW](https://www.reddit.com/r/Silksong/comments/1pnofs8/we_won_guys_sea_of_sorrow_silksong_tomorrow/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Team Cherry addresses the AI allegations](https://www.reddit.com/r/Silksong/comments/1pqqjnc/team_cherry_addresses_the_ai_allegations/)
+- [Game stop price is insane](https://www.reddit.com/r/Silksong/comments/1pqsq3w/game_stop_price_is_insane/)
+- [[Mod Announcement] The ban on AI content will be lifted temporarily](https://www.reddit.com/r/Silksong/comments/1pqssjq/mod_announcement_the_ban_on_ai_content_will_be/)
