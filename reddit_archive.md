@@ -710,3 +710,11 @@
 - [Team Cherry addresses the AI allegations](https://www.reddit.com/r/Silksong/comments/1pqqjnc/team_cherry_addresses_the_ai_allegations/)
 - [Game stop price is insane](https://www.reddit.com/r/Silksong/comments/1pqsq3w/game_stop_price_is_insane/)
 - [[Mod Announcement] The ban on AI content will be lifted temporarily](https://www.reddit.com/r/Silksong/comments/1pqssjq/mod_announcement_the_ban_on_ai_content_will_be/)
+
+## 2025-12-21
+### r/Silksong — hot (day)
+- [WE WON GUYS! SEA OF SORROW SILKSONG TOMORROW](https://www.reddit.com/r/Silksong/comments/1pnofs8/we_won_guys_sea_of_sorrow_silksong_tomorrow/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [I bet all the "Team Cherry Uses AI" posts caused this. Look what y'all did.](https://www.reddit.com/r/Silksong/comments/1prgum7/i_bet_all_the_team_cherry_uses_ai_posts_caused/)
+- [Stupid hk silksong comic, number "i'm really tired but i think it's #5"- 'f*ck my stupid silken life'](https://www.reddit.com/r/Silksong/comments/1prjhtm/stupid_hk_silksong_comic_number_im_really_tired/)
+- [[OC] She's learning](https://www.reddit.com/r/Silksong/comments/1prhbb9/oc_shes_learning/)
