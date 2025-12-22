@@ -718,3 +718,11 @@
 - [I bet all the "Team Cherry Uses AI" posts caused this. Look what y'all did.](https://www.reddit.com/r/Silksong/comments/1prgum7/i_bet_all_the_team_cherry_uses_ai_posts_caused/)
 - [Stupid hk silksong comic, number "i'm really tired but i think it's #5"- 'f*ck my stupid silken life'](https://www.reddit.com/r/Silksong/comments/1prjhtm/stupid_hk_silksong_comic_number_im_really_tired/)
 - [[OC] She's learning](https://www.reddit.com/r/Silksong/comments/1prhbb9/oc_shes_learning/)
+
+## 2025-12-22
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Team Cherry revealed new Sea of Sorrow images!!!](https://www.reddit.com/r/Silksong/comments/1psb5gd/team_cherry_revealed_new_sea_of_sorrow_images/)
+- [Ain’t no way!!!](https://www.reddit.com/r/Silksong/comments/1ps5kp4/aint_no_way/)
+- [In Silksong, anyone can find an enemy they can hate with their soul!](https://www.reddit.com/r/Silksong/comments/1psbgab/in_silksong_anyone_can_find_an_enemy_they_can/)
