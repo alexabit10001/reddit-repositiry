@@ -726,3 +726,11 @@
 - [Team Cherry revealed new Sea of Sorrow images!!!](https://www.reddit.com/r/Silksong/comments/1psb5gd/team_cherry_revealed_new_sea_of_sorrow_images/)
 - [Ain’t no way!!!](https://www.reddit.com/r/Silksong/comments/1ps5kp4/aint_no_way/)
 - [In Silksong, anyone can find an enemy they can hate with their soul!](https://www.reddit.com/r/Silksong/comments/1psbgab/in_silksong_anyone_can_find_an_enemy_they_can/)
+
+## 2025-12-23
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [the ultimate rematch](https://www.reddit.com/r/Silksong/comments/1pt4maz/the_ultimate_rematch/)
+- [An idea. by jessamakesart](https://www.reddit.com/r/Silksong/comments/1pt0vij/an_idea_by_jessamakesart/)
+- [If you dont buy a desk, the materium is just placed on the floor lmao](https://www.reddit.com/r/Silksong/comments/1ptbboi/if_you_dont_buy_a_desk_the_materium_is_just/)
