@@ -734,3 +734,11 @@
 - [the ultimate rematch](https://www.reddit.com/r/Silksong/comments/1pt4maz/the_ultimate_rematch/)
 - [An idea. by jessamakesart](https://www.reddit.com/r/Silksong/comments/1pt0vij/an_idea_by_jessamakesart/)
 - [If you dont buy a desk, the materium is just placed on the floor lmao](https://www.reddit.com/r/Silksong/comments/1ptbboi/if_you_dont_buy_a_desk_the_materium_is_just/)
+
+## 2025-12-24
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- ["You too... your children betrayed you too..." "Tch, don't compare me to yourself" (@Boopie1002)](https://www.reddit.com/r/Silksong/comments/1pu60pu/you_too_your_children_betrayed_you_too_tch_dont/)
+- [DO THE HORNET! SWING YOUR LEGS FROM SIDE TO SIDE! COME ON, IT'S TIME TO GO! DO THE HORNET!](https://www.reddit.com/r/Silksong/comments/1pu7cmx/do_the_hornet_swing_your_legs_from_side_to_side/)
+- [Hornet and Lace ship art <3](https://www.reddit.com/r/Silksong/comments/1ptr6oj/hornet_and_lace_ship_art_3/)
