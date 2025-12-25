@@ -742,3 +742,11 @@
 - ["You too... your children betrayed you too..." "Tch, don't compare me to yourself" (@Boopie1002)](https://www.reddit.com/r/Silksong/comments/1pu60pu/you_too_your_children_betrayed_you_too_tch_dont/)
 - [DO THE HORNET! SWING YOUR LEGS FROM SIDE TO SIDE! COME ON, IT'S TIME TO GO! DO THE HORNET!](https://www.reddit.com/r/Silksong/comments/1pu7cmx/do_the_hornet_swing_your_legs_from_side_to_side/)
 - [Hornet and Lace ship art <3](https://www.reddit.com/r/Silksong/comments/1ptr6oj/hornet_and_lace_ship_art_3/)
+
+## 2025-12-25
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Like Father, Like Daughter](https://www.reddit.com/r/Silksong/comments/1puyilf/like_father_like_daughter/)
+- [Hollow Knight reference people may have missed](https://www.reddit.com/r/Silksong/comments/1puscpi/hollow_knight_reference_people_may_have_missed/)
+- [I'm sad to say... This enemy is officially extinct on my safe-file...](https://www.reddit.com/r/Silksong/comments/1puzozo/im_sad_to_say_this_enemy_is_officially_extinct_on/)
