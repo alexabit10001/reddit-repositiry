@@ -750,3 +750,11 @@
 - [Like Father, Like Daughter](https://www.reddit.com/r/Silksong/comments/1puyilf/like_father_like_daughter/)
 - [Hollow Knight reference people may have missed](https://www.reddit.com/r/Silksong/comments/1puscpi/hollow_knight_reference_people_may_have_missed/)
 - [I'm sad to say... This enemy is officially extinct on my safe-file...](https://www.reddit.com/r/Silksong/comments/1puzozo/im_sad_to_say_this_enemy_is_officially_extinct_on/)
+
+## 2025-12-26
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [The Beast vs the Actual monster](https://www.reddit.com/r/Silksong/comments/1pvidcm/the_beast_vs_the_actual_monster/)
+- [Chapel of the Reaper Needolin](https://www.reddit.com/r/Silksong/comments/1pvmyfh/chapel_of_the_reaper_needolin/)
+- [Just got my silksong poster from fangamer and saw this on the box](https://www.reddit.com/r/Silksong/comments/1pveksh/just_got_my_silksong_poster_from_fangamer_and_saw/)
