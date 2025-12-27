@@ -758,3 +758,11 @@
 - [The Beast vs the Actual monster](https://www.reddit.com/r/Silksong/comments/1pvidcm/the_beast_vs_the_actual_monster/)
 - [Chapel of the Reaper Needolin](https://www.reddit.com/r/Silksong/comments/1pvmyfh/chapel_of_the_reaper_needolin/)
 - [Just got my silksong poster from fangamer and saw this on the box](https://www.reddit.com/r/Silksong/comments/1pveksh/just_got_my_silksong_poster_from_fangamer_and_saw/)
+
+## 2025-12-27
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [total gooner victory](https://www.reddit.com/r/Silksong/comments/1pw91xr/total_gooner_victory/)
+- [She’s gonna beat our ass in godhome isn’t she](https://www.reddit.com/r/Silksong/comments/1pw7qtp/shes_gonna_beat_our_ass_in_godhome_isnt_she/)
+- [A gentle reminder for anyone who hasn't seen this cuteness overloaded piece of art 🤌](https://www.reddit.com/r/Silksong/comments/1pwa5os/a_gentle_reminder_for_anyone_who_hasnt_seen_this/)
