@@ -766,3 +766,11 @@
 - [total gooner victory](https://www.reddit.com/r/Silksong/comments/1pw91xr/total_gooner_victory/)
 - [She’s gonna beat our ass in godhome isn’t she](https://www.reddit.com/r/Silksong/comments/1pw7qtp/shes_gonna_beat_our_ass_in_godhome_isnt_she/)
 - [A gentle reminder for anyone who hasn't seen this cuteness overloaded piece of art 🤌](https://www.reddit.com/r/Silksong/comments/1pwa5os/a_gentle_reminder_for_anyone_who_hasnt_seen_this/)
+
+## 2025-12-28
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Sea of Sorrow news from Team Cherry!](https://www.reddit.com/r/Silksong/comments/1px9hbx/sea_of_sorrow_news_from_team_cherry/)
+- [New Silksong players don't understand how bad silksanity got at one point , I don't even remember posting it lmao](https://www.reddit.com/r/Silksong/comments/1px43ty/new_silksong_players_dont_understand_how_bad/)
+- [TEAM CHERRY JUST ANNOUNCED SEA OF SORROW RELEASE DATE. IT'S A MIRACLE](https://www.reddit.com/r/Silksong/comments/1pwsl69/team_cherry_just_announced_sea_of_sorrow_release/)
