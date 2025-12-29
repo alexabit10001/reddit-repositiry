@@ -774,3 +774,11 @@
 - [Sea of Sorrow news from Team Cherry!](https://www.reddit.com/r/Silksong/comments/1px9hbx/sea_of_sorrow_news_from_team_cherry/)
 - [New Silksong players don't understand how bad silksanity got at one point , I don't even remember posting it lmao](https://www.reddit.com/r/Silksong/comments/1px43ty/new_silksong_players_dont_understand_how_bad/)
 - [TEAM CHERRY JUST ANNOUNCED SEA OF SORROW RELEASE DATE. IT'S A MIRACLE](https://www.reddit.com/r/Silksong/comments/1pwsl69/team_cherry_just_announced_sea_of_sorrow_release/)
+
+## 2025-12-29
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [In protest of twitter's ai edit image](https://www.reddit.com/r/Silksong/comments/1py5p5l/in_protest_of_twitters_ai_edit_image/)
+- ["I think I downloaded the wrong Silksong DLC..." by @soapstag](https://www.reddit.com/r/Silksong/comments/1py1bu3/i_think_i_downloaded_the_wrong_silksong_dlc_by/)
+- [LET STICKERS BE USED BY ALL.](https://www.reddit.com/r/Silksong/comments/1pxsh9t/let_stickers_be_used_by_all/)
