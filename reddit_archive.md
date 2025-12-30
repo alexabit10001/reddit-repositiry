@@ -782,3 +782,11 @@
 - [In protest of twitter's ai edit image](https://www.reddit.com/r/Silksong/comments/1py5p5l/in_protest_of_twitters_ai_edit_image/)
 - ["I think I downloaded the wrong Silksong DLC..." by @soapstag](https://www.reddit.com/r/Silksong/comments/1py1bu3/i_think_i_downloaded_the_wrong_silksong_dlc_by/)
 - [LET STICKERS BE USED BY ALL.](https://www.reddit.com/r/Silksong/comments/1pxsh9t/let_stickers_be_used_by_all/)
+
+## 2025-12-30
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [SHAW!!!!!!!!!!!!](https://www.reddit.com/r/Silksong/comments/1pz0t9x/shaw/)
+- [Is the Bell Beast fight just petting her until she trusts you?](https://www.reddit.com/r/Silksong/comments/1pyovo2/is_the_bell_beast_fight_just_petting_her_until/)
+- [OH MY GOD GUYS CHECK YOUTUBE THIS IS INSANE](https://www.reddit.com/r/Silksong/comments/1pyo2vg/oh_my_god_guys_check_youtube_this_is_insane/)
