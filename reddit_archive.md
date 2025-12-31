@@ -790,3 +790,11 @@
 - [SHAW!!!!!!!!!!!!](https://www.reddit.com/r/Silksong/comments/1pz0t9x/shaw/)
 - [Is the Bell Beast fight just petting her until she trusts you?](https://www.reddit.com/r/Silksong/comments/1pyovo2/is_the_bell_beast_fight_just_petting_her_until/)
 - [OH MY GOD GUYS CHECK YOUTUBE THIS IS INSANE](https://www.reddit.com/r/Silksong/comments/1pyo2vg/oh_my_god_guys_check_youtube_this_is_insane/)
+
+## 2025-12-31
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Think Team Cherry could still drop the game before 2025 ends?](https://www.reddit.com/r/Silksong/comments/1pztzmn/think_team_cherry_could_still_drop_the_game/)
+- [Months has passed and still no Silksong to be seen , where is your totally real game beLIEvers?](https://www.reddit.com/r/Silksong/comments/1pzrzch/months_has_passed_and_still_no_silksong_to_be/)
+- [DON'T GO BACK TO THE STARTING AREA DURING ACT 3 😭😭😭😭](https://www.reddit.com/r/Silksong/comments/1pznf8i/dont_go_back_to_the_starting_area_during_act_3/)
