@@ -798,3 +798,11 @@
 - [Think Team Cherry could still drop the game before 2025 ends?](https://www.reddit.com/r/Silksong/comments/1pztzmn/think_team_cherry_could_still_drop_the_game/)
 - [Months has passed and still no Silksong to be seen , where is your totally real game beLIEvers?](https://www.reddit.com/r/Silksong/comments/1pzrzch/months_has_passed_and_still_no_silksong_to_be/)
 - [DON'T GO BACK TO THE STARTING AREA DURING ACT 3 😭😭😭😭](https://www.reddit.com/r/Silksong/comments/1pznf8i/dont_go_back_to_the_starting_area_during_act_3/)
+
+## 2026-01-01
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [HOLLOW KNIGHT FOR FREE ON EPIC GAMES!!](https://www.reddit.com/r/Silksong/comments/1q0h559/hollow_knight_for_free_on_epic_games/)
+- [Hello r/Silksong. I am Lxnaspiral. Everyone seems to be demanding money from me, because Silksong "released in 2025". But it didn't, which confuses me greatly.](https://www.reddit.com/r/Silksong/comments/1q0jy22/hello_rsilksong_i_am_lxnaspiral_everyone_seems_to/)
+- [So…She’s just microplastics God?](https://www.reddit.com/r/Silksong/comments/1q0nmdy/soshes_just_microplastics_god/)
