@@ -806,3 +806,11 @@
 - [HOLLOW KNIGHT FOR FREE ON EPIC GAMES!!](https://www.reddit.com/r/Silksong/comments/1q0h559/hollow_knight_for_free_on_epic_games/)
 - [Hello r/Silksong. I am Lxnaspiral. Everyone seems to be demanding money from me, because Silksong "released in 2025". But it didn't, which confuses me greatly.](https://www.reddit.com/r/Silksong/comments/1q0jy22/hello_rsilksong_i_am_lxnaspiral_everyone_seems_to/)
 - [So…She’s just microplastics God?](https://www.reddit.com/r/Silksong/comments/1q0nmdy/soshes_just_microplastics_god/)
+
+## 2026-01-02
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [You’re WHO?!?!?](https://www.reddit.com/r/Silksong/comments/1q19t6t/youre_who/)
+- [(Big Act 3 Spoilers) My dude deserves a lot more glaze](https://www.reddit.com/r/Silksong/comments/1q1gz0a/big_act_3_spoilers_my_dude_deserves_a_lot_more/)
+- [Guys, I can't beat this boss in Silksong. It's just too hard. Any tips?](https://www.reddit.com/r/Silksong/comments/1q11mi5/guys_i_cant_beat_this_boss_in_silksong_its_just/)
