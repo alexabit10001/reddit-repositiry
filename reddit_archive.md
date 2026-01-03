@@ -814,3 +814,11 @@
 - [You’re WHO?!?!?](https://www.reddit.com/r/Silksong/comments/1q19t6t/youre_who/)
 - [(Big Act 3 Spoilers) My dude deserves a lot more glaze](https://www.reddit.com/r/Silksong/comments/1q1gz0a/big_act_3_spoilers_my_dude_deserves_a_lot_more/)
 - [Guys, I can't beat this boss in Silksong. It's just too hard. Any tips?](https://www.reddit.com/r/Silksong/comments/1q11mi5/guys_i_cant_beat_this_boss_in_silksong_its_just/)
+
+## 2026-01-03
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Just want to say that this guy making these videogame covers is 100% using ai for the music and thumbnails](https://www.reddit.com/r/Silksong/comments/1q295tc/just_want_to_say_that_this_guy_making_these/)
+- [Is it just me or is the difficulty spike in this area way too much? There's too much going on and they’re introducing too many new things, like for this point in the game this is some bullshit.](https://www.reddit.com/r/Silksong/comments/1q24iyo/is_it_just_me_or_is_the_difficulty_spike_in_this/)
+- [Where did Karmelita go?????? Who is this?????](https://www.reddit.com/r/Silksong/comments/1q1xt0f/where_did_karmelita_go_who_is_this/)
