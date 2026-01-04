@@ -822,3 +822,11 @@
 - [Just want to say that this guy making these videogame covers is 100% using ai for the music and thumbnails](https://www.reddit.com/r/Silksong/comments/1q295tc/just_want_to_say_that_this_guy_making_these/)
 - [Is it just me or is the difficulty spike in this area way too much? There's too much going on and they’re introducing too many new things, like for this point in the game this is some bullshit.](https://www.reddit.com/r/Silksong/comments/1q24iyo/is_it_just_me_or_is_the_difficulty_spike_in_this/)
 - [Where did Karmelita go?????? Who is this?????](https://www.reddit.com/r/Silksong/comments/1q1xt0f/where_did_karmelita_go_who_is_this/)
+
+## 2026-01-04
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Silksong won Game of the Year at the Steam Awards!](https://www.reddit.com/r/Silksong/comments/1q31g6w/silksong_won_game_of_the_year_at_the_steam_awards/)
+- [This DLC boss is unfair!](https://www.reddit.com/r/Silksong/comments/1q35ycx/this_dlc_boss_is_unfair/)
+- [Silksong won Game Of The Year on Steam. From what I can see it was a close call.](https://www.reddit.com/r/Silksong/comments/1q32f4x/silksong_won_game_of_the_year_on_steam_from_what/)
