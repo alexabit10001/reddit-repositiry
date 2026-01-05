@@ -830,3 +830,11 @@
 - [Silksong won Game of the Year at the Steam Awards!](https://www.reddit.com/r/Silksong/comments/1q31g6w/silksong_won_game_of_the_year_at_the_steam_awards/)
 - [This DLC boss is unfair!](https://www.reddit.com/r/Silksong/comments/1q35ycx/this_dlc_boss_is_unfair/)
 - [Silksong won Game Of The Year on Steam. From what I can see it was a close call.](https://www.reddit.com/r/Silksong/comments/1q32f4x/silksong_won_game_of_the_year_on_steam_from_what/)
+
+## 2026-01-05
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Do I call the police???](https://www.reddit.com/r/Silksong/comments/1q3zzkc/do_i_call_the_police/)
+- [The mad woman and her 10 ton beast](https://www.reddit.com/r/Silksong/comments/1q3qrd1/the_mad_woman_and_her_10_ton_beast/)
+- [Anyone else finds it weird that Nintendo added Hornet first instead of the Knight??](https://www.reddit.com/r/Silksong/comments/1q3yc24/anyone_else_finds_it_weird_that_nintendo_added/)
