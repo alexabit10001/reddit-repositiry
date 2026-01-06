@@ -838,3 +838,6 @@
 - [Do I call the police???](https://www.reddit.com/r/Silksong/comments/1q3zzkc/do_i_call_the_police/)
 - [The mad woman and her 10 ton beast](https://www.reddit.com/r/Silksong/comments/1q3qrd1/the_mad_woman_and_her_10_ton_beast/)
 - [Anyone else finds it weird that Nintendo added Hornet first instead of the Knight??](https://www.reddit.com/r/Silksong/comments/1q3yc24/anyone_else_finds_it_weird_that_nintendo_added/)
+
+## 2026-01-06
+### r/Silksong — hot (day)
