@@ -852,3 +852,11 @@
 - [someone dodge pleaseeeeeeeeeee](https://www.reddit.com/r/Silksong/comments/1q6kknl/someone_dodge_pleaseeeeeeeeeee/)
 - [The Top 3 most forgettable bosses in Silksong](https://www.reddit.com/r/Silksong/comments/1q6m84t/the_top_3_most_forgettable_bosses_in_silksong/)
 - [There's special dialogue with Sherma if you make it to the Blasted Steps without ever paying for a bench](https://www.reddit.com/r/Silksong/comments/1q6sr1m/theres_special_dialogue_with_sherma_if_you_make/)
+
+## 2026-01-09
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Staring Politely (by @angeban93)](https://www.reddit.com/r/Silksong/comments/1q7fwbb/staring_politely_by_angeban93/)
+- [Mechanical vessel bros ( Mewyfox twitter )](https://www.reddit.com/r/Silksong/comments/1q7jyo8/mechanical_vessel_bros_mewyfox_twitter/)
+- [I'm sorry but the new launcher fucking sucks](https://www.reddit.com/r/Silksong/comments/1q764fr/im_sorry_but_the_new_launcher_fucking_sucks/)
