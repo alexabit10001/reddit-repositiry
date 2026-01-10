@@ -860,3 +860,11 @@
 - [Staring Politely (by @angeban93)](https://www.reddit.com/r/Silksong/comments/1q7fwbb/staring_politely_by_angeban93/)
 - [Mechanical vessel bros ( Mewyfox twitter )](https://www.reddit.com/r/Silksong/comments/1q7jyo8/mechanical_vessel_bros_mewyfox_twitter/)
 - [I'm sorry but the new launcher fucking sucks](https://www.reddit.com/r/Silksong/comments/1q764fr/im_sorry_but_the_new_launcher_fucking_sucks/)
+
+## 2026-01-10
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [A CERTIFIED TIMETRAVELER [Credit to "Less" On Youtube]](https://www.reddit.com/r/Silksong/comments/1q8ji2c/a_certified_timetraveler_credit_to_less_on_youtube/)
+- [I love Team Cherry but this one is a bit disappointing...](https://www.reddit.com/r/Silksong/comments/1q89ud6/i_love_team_cherry_but_this_one_is_a_bit/)
+- [Oh my god guys i can't believe team cherry genetically modified a spider to be like hornet irl](https://www.reddit.com/r/Silksong/comments/1q8dnhg/oh_my_god_guys_i_cant_believe_team_cherry/)
