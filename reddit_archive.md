@@ -876,3 +876,11 @@
 - [I got Silksong for *FREE* on a shady website and so far it's peak gameplay](https://www.reddit.com/r/Silksong/comments/1q9gvam/i_got_silksong_for_free_on_a_shady_website_and_so/)
 - [Little Ghost vs hornet (art by me)](https://www.reddit.com/r/Silksong/comments/1q98cl6/little_ghost_vs_hornet_art_by_me/)
 - [[OC] Drawing Hornet's head is surprisingly hard](https://www.reddit.com/r/Silksong/comments/1q9bkpd/oc_drawing_hornets_head_is_surprisingly_hard/)
+
+## 2026-01-12
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [LMFAO THE POST GAME SUB MEMBERS DONT KNOW WHAT A SILKPOST IS](https://www.reddit.com/r/Silksong/comments/1qa6jvi/lmfao_the_post_game_sub_members_dont_know_what_a/)
+- [Was anyone else really surprised by the reveal of Shakra's mentor?](https://www.reddit.com/r/Silksong/comments/1q9zwz8/was_anyone_else_really_surprised_by_the_reveal_of/)
+- [Fanart of Hornet](https://www.reddit.com/r/Silksong/comments/1qa628l/fanart_of_hornet/)
