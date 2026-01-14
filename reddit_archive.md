@@ -892,3 +892,11 @@
 - [I haven’t really seen anyone talk about this, but the Silksong plushies are absurdly high quality](https://www.reddit.com/r/Silksong/comments/1qb0dsa/i_havent_really_seen_anyone_talk_about_this_but/)
 - [[OC] Lace's theme has been stuck in my head for days now so I drew this](https://www.reddit.com/r/Silksong/comments/1qasinn/oc_laces_theme_has_been_stuck_in_my_head_for_days/)
 - [This fanfic shit is so easy](https://www.reddit.com/r/Silksong/comments/1qazyel/this_fanfic_shit_is_so_easy/)
+
+## 2026-01-14
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- ["This came to me in a vision" by @glyphalodon](https://www.reddit.com/r/Silksong/comments/1qc6990/this_came_to_me_in_a_vision_by_glyphalodon/)
+- [[OC] who is this? I wasn't told about this guy being at Whiteward is this normal?](https://www.reddit.com/r/Silksong/comments/1qbvcsp/oc_who_is_this_i_wasnt_told_about_this_guy_being/)
+- [The new main menu is a downgrade, what was Team Cherry thinking?](https://www.reddit.com/r/Silksong/comments/1qbq1gs/the_new_main_menu_is_a_downgrade_what_was_team/)
