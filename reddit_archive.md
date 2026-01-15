@@ -900,3 +900,11 @@
 - ["This came to me in a vision" by @glyphalodon](https://www.reddit.com/r/Silksong/comments/1qc6990/this_came_to_me_in_a_vision_by_glyphalodon/)
 - [[OC] who is this? I wasn't told about this guy being at Whiteward is this normal?](https://www.reddit.com/r/Silksong/comments/1qbvcsp/oc_who_is_this_i_wasnt_told_about_this_guy_being/)
 - [The new main menu is a downgrade, what was Team Cherry thinking?](https://www.reddit.com/r/Silksong/comments/1qbq1gs/the_new_main_menu_is_a_downgrade_what_was_team/)
+
+## 2026-01-15
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Unused Asset "sherma_corpse.png" found on PS5 using a Devkit](https://www.reddit.com/r/Silksong/comments/1qcm53g/unused_asset_sherma_corpsepng_found_on_ps5_using/)
+- [Apparently TEAM CHERRY IS BANNING SILKPOSTS?!](https://www.reddit.com/r/Silksong/comments/1qcoh0j/apparently_team_cherry_is_banning_silkposts/)
+- [please, let people do both. the sub's shitpost culture can live on and we can talk about things and post fan art, this sub doesn't need to be gentrified then divided in 2. further explanation in body](https://www.reddit.com/r/Silksong/comments/1qcyp3y/please_let_people_do_both_the_subs_shitpost/)
