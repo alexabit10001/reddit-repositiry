@@ -908,3 +908,11 @@
 - [Unused Asset "sherma_corpse.png" found on PS5 using a Devkit](https://www.reddit.com/r/Silksong/comments/1qcm53g/unused_asset_sherma_corpsepng_found_on_ps5_using/)
 - [Apparently TEAM CHERRY IS BANNING SILKPOSTS?!](https://www.reddit.com/r/Silksong/comments/1qcoh0j/apparently_team_cherry_is_banning_silkposts/)
 - [please, let people do both. the sub's shitpost culture can live on and we can talk about things and post fan art, this sub doesn't need to be gentrified then divided in 2. further explanation in body](https://www.reddit.com/r/Silksong/comments/1qcyp3y/please_let_people_do_both_the_subs_shitpost/)
+
+## 2026-01-16
+### r/Silksong — hot (day)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Silksong Patch 4 Details - November 6th, 2025](https://www.reddit.com/r/Silksong/comments/1oqn53g/silksong_patch_4_details_november_6th_2025/)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [[OC] Character development](https://www.reddit.com/r/Silksong/comments/1qdejzd/oc_character_development/)
+- [My godmaster bosses prediction](https://www.reddit.com/r/Silksong/comments/1qdrv8g/my_godmaster_bosses_prediction/)
