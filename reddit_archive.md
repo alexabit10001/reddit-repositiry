@@ -916,3 +916,11 @@
 - [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
 - [[OC] Character development](https://www.reddit.com/r/Silksong/comments/1qdejzd/oc_character_development/)
 - [My godmaster bosses prediction](https://www.reddit.com/r/Silksong/comments/1qdrv8g/my_godmaster_bosses_prediction/)
+
+## 2026-01-17
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [How did y'all enjoy Evertrail? [OC]](https://www.reddit.com/r/Silksong/comments/1qetpnl/how_did_yall_enjoy_evertrail_oc/)
+- [zylotol & zango as humans! (zango we need to cook)](https://www.reddit.com/r/Silksong/comments/1qepcoa/zylotol_zango_as_humans_zango_we_need_to_cook/)
+- [Did anyone else find the final boss a bit lazy??](https://www.reddit.com/r/Silksong/comments/1qeqqz3/did_anyone_else_find_the_final_boss_a_bit_lazy/)
