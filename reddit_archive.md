@@ -924,3 +924,11 @@
 - [How did y'all enjoy Evertrail? [OC]](https://www.reddit.com/r/Silksong/comments/1qetpnl/how_did_yall_enjoy_evertrail_oc/)
 - [zylotol & zango as humans! (zango we need to cook)](https://www.reddit.com/r/Silksong/comments/1qepcoa/zylotol_zango_as_humans_zango_we_need_to_cook/)
 - [Did anyone else find the final boss a bit lazy??](https://www.reddit.com/r/Silksong/comments/1qeqqz3/did_anyone_else_find_the_final_boss_a_bit_lazy/)
+
+## 2026-01-18
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Saw one of the coolest cars today](https://www.reddit.com/r/Silksong/comments/1qfe7kh/saw_one_of_the_coolest_cars_today/)
+- [hornet on tumblr](https://www.reddit.com/r/Silksong/comments/1qfdl96/hornet_on_tumblr/)
+- [Google should ban Gemini from using Reddit as a source for Silksong](https://www.reddit.com/r/Silksong/comments/1qfd30g/google_should_ban_gemini_from_using_reddit_as_a/)
