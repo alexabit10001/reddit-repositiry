@@ -932,3 +932,11 @@
 - [Saw one of the coolest cars today](https://www.reddit.com/r/Silksong/comments/1qfe7kh/saw_one_of_the_coolest_cars_today/)
 - [hornet on tumblr](https://www.reddit.com/r/Silksong/comments/1qfdl96/hornet_on_tumblr/)
 - [Google should ban Gemini from using Reddit as a source for Silksong](https://www.reddit.com/r/Silksong/comments/1qfd30g/google_should_ban_gemini_from_using_reddit_as_a/)
+
+## 2026-01-19
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [So......... how do you acquire geo in the game](https://www.reddit.com/r/Silksong/comments/1qgcvlp/so_how_do_you_acquire_geo_in_the_game/)
+- [[OC] Alright guys what are we calling this ship](https://www.reddit.com/r/Silksong/comments/1qghdca/oc_alright_guys_what_are_we_calling_this_ship/)
+- [Day 4 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qgftip/day_4_of_fighting_savage_beastfly_everyday_until/)
