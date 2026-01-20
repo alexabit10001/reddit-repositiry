@@ -940,3 +940,11 @@
 - [So......... how do you acquire geo in the game](https://www.reddit.com/r/Silksong/comments/1qgcvlp/so_how_do_you_acquire_geo_in_the_game/)
 - [[OC] Alright guys what are we calling this ship](https://www.reddit.com/r/Silksong/comments/1qghdca/oc_alright_guys_what_are_we_calling_this_ship/)
 - [Day 4 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qgftip/day_4_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-01-20
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [THIRD BLOOMBERG INTERVIEW WITH TEAM CHERRY JUST DROPPED (CUT CONTENT)](https://www.reddit.com/r/Silksong/comments/1qhf2yu/third_bloomberg_interview_with_team_cherry_just/)
+- [Guys...I might have an ant problem](https://www.reddit.com/r/Silksong/comments/1qh5usy/guysi_might_have_an_ant_problem/)
+- [This boss is a mess, I have no idea what’s even happening 90% of the time, seriously can you look at this clip and tell me with a straight face how you would’ve survived?](https://www.reddit.com/r/Silksong/comments/1qh9r8u/this_boss_is_a_mess_i_have_no_idea_whats_even/)
