@@ -948,3 +948,11 @@
 - [THIRD BLOOMBERG INTERVIEW WITH TEAM CHERRY JUST DROPPED (CUT CONTENT)](https://www.reddit.com/r/Silksong/comments/1qhf2yu/third_bloomberg_interview_with_team_cherry_just/)
 - [Guys...I might have an ant problem](https://www.reddit.com/r/Silksong/comments/1qh5usy/guysi_might_have_an_ant_problem/)
 - [This boss is a mess, I have no idea what’s even happening 90% of the time, seriously can you look at this clip and tell me with a straight face how you would’ve survived?](https://www.reddit.com/r/Silksong/comments/1qh9r8u/this_boss_is_a_mess_i_have_no_idea_whats_even/)
+
+## 2026-01-21
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Trobbio aurafarming on Hornet](https://www.reddit.com/r/Silksong/comments/1qiaj91/trobbio_aurafarming_on_hornet/)
+- [How to grow your vessel](https://www.reddit.com/r/Silksong/comments/1qi0nc5/how_to_grow_your_vessel/)
+- [i think my phantom might be lost i cant find them](https://www.reddit.com/r/Silksong/comments/1qibrrw/i_think_my_phantom_might_be_lost_i_cant_find_them/)
