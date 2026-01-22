@@ -956,3 +956,11 @@
 - [Trobbio aurafarming on Hornet](https://www.reddit.com/r/Silksong/comments/1qiaj91/trobbio_aurafarming_on_hornet/)
 - [How to grow your vessel](https://www.reddit.com/r/Silksong/comments/1qi0nc5/how_to_grow_your_vessel/)
 - [i think my phantom might be lost i cant find them](https://www.reddit.com/r/Silksong/comments/1qibrrw/i_think_my_phantom_might_be_lost_i_cant_find_them/)
+
+## 2026-01-22
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [wait they're nonbinary](https://www.reddit.com/r/Silksong/comments/1qj7asq/wait_theyre_nonbinary/)
+- [Why did she say this](https://www.reddit.com/r/Silksong/comments/1qiz1f8/why_did_she_say_this/)
+- [Lottery (art by me)](https://www.reddit.com/r/Silksong/comments/1qj2o4z/lottery_art_by_me/)
