@@ -964,3 +964,11 @@
 - [wait they're nonbinary](https://www.reddit.com/r/Silksong/comments/1qj7asq/wait_theyre_nonbinary/)
 - [Why did she say this](https://www.reddit.com/r/Silksong/comments/1qiz1f8/why_did_she_say_this/)
 - [Lottery (art by me)](https://www.reddit.com/r/Silksong/comments/1qj2o4z/lottery_art_by_me/)
+
+## 2026-01-23
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Huh, would you look at that.](https://www.reddit.com/r/Silksong/comments/1qjx4h9/huh_would_you_look_at_that/)
+- [In ‘hollow knight/silksong‘ we have: (art by me)](https://www.reddit.com/r/Silksong/comments/1qjwq2z/in_hollow_knightsilksong_we_have_art_by_me/)
+- [[Spoiler] This line goes really hard.](https://www.reddit.com/r/Silksong/comments/1qk8z0h/spoiler_this_line_goes_really_hard/)
