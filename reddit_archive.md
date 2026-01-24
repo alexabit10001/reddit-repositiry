@@ -972,3 +972,11 @@
 - [Huh, would you look at that.](https://www.reddit.com/r/Silksong/comments/1qjx4h9/huh_would_you_look_at_that/)
 - [In ‘hollow knight/silksong‘ we have: (art by me)](https://www.reddit.com/r/Silksong/comments/1qjwq2z/in_hollow_knightsilksong_we_have_art_by_me/)
 - [[Spoiler] This line goes really hard.](https://www.reddit.com/r/Silksong/comments/1qk8z0h/spoiler_this_line_goes_really_hard/)
+
+## 2026-01-24
+### r/Silksong — hot (day)
+- [Pharloom map drawing](https://www.reddit.com/r/Silksong/comments/1qdltz2/pharloom_map_drawing/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [Game is fking dead](https://www.reddit.com/r/Silksong/comments/1qkp8yf/game_is_fking_dead/)
+- [Day 9 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qky11t/day_9_of_fighting_savage_beastfly_everyday_until/)
+- [the curse is lifted](https://www.reddit.com/r/Silksong/comments/1ql1hf1/the_curse_is_lifted/)
