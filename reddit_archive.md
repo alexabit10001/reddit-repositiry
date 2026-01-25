@@ -980,3 +980,11 @@
 - [Game is fking dead](https://www.reddit.com/r/Silksong/comments/1qkp8yf/game_is_fking_dead/)
 - [Day 9 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qky11t/day_9_of_fighting_savage_beastfly_everyday_until/)
 - [the curse is lifted](https://www.reddit.com/r/Silksong/comments/1ql1hf1/the_curse_is_lifted/)
+
+## 2026-01-25
+### r/Silksong — hot (day)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [I still don't understand the significance of this scene??](https://www.reddit.com/r/Silksong/comments/1qlul6i/i_still_dont_understand_the_significance_of_this/)
+- [Hornet? (Art by me)](https://www.reddit.com/r/Silksong/comments/1qlucpp/hornet_art_by_me/)
+- [Day 10 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qlutot/day_10_of_fighting_savage_beastfly_everyday_until/)
