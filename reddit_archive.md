@@ -988,3 +988,11 @@
 - [I still don't understand the significance of this scene??](https://www.reddit.com/r/Silksong/comments/1qlul6i/i_still_dont_understand_the_significance_of_this/)
 - [Hornet? (Art by me)](https://www.reddit.com/r/Silksong/comments/1qlucpp/hornet_art_by_me/)
 - [Day 10 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qlutot/day_10_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-01-26
+### r/Silksong — hot (day)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [[OC] I animated this Twelth Architech sprite of her throwing it back](https://www.reddit.com/r/Silksong/comments/1qmwjp7/oc_i_animated_this_twelth_architech_sprite_of_her/)
+- [So I was just strolling through the area and out of nowhere three individuals apprehended me saying they will take me back to Hallownest whether I like it or not](https://www.reddit.com/r/Silksong/comments/1qmfyp2/so_i_was_just_strolling_through_the_area_and_out/)
+- [Norget (Derpy Hornet) Goes To England](https://www.reddit.com/r/Silksong/comments/1qmn5l3/norget_derpy_hornet_goes_to_england/)
