@@ -996,3 +996,11 @@
 - [[OC] I animated this Twelth Architech sprite of her throwing it back](https://www.reddit.com/r/Silksong/comments/1qmwjp7/oc_i_animated_this_twelth_architech_sprite_of_her/)
 - [So I was just strolling through the area and out of nowhere three individuals apprehended me saying they will take me back to Hallownest whether I like it or not](https://www.reddit.com/r/Silksong/comments/1qmfyp2/so_i_was_just_strolling_through_the_area_and_out/)
 - [Norget (Derpy Hornet) Goes To England](https://www.reddit.com/r/Silksong/comments/1qmn5l3/norget_derpy_hornet_goes_to_england/)
+
+## 2026-01-27
+### r/Silksong — hot (day)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [The game just started this some bullshit](https://www.reddit.com/r/Silksong/comments/1qnu9x9/the_game_just_started_this_some_bullshit/)
+- [am I the only one who has these new grub textures?](https://www.reddit.com/r/Silksong/comments/1qnqezl/am_i_the_only_one_who_has_these_new_grub_textures/)
+- [Let's freakin' go! I unlocked this entry!](https://www.reddit.com/r/Silksong/comments/1qne687/lets_freakin_go_i_unlocked_this_entry/)
