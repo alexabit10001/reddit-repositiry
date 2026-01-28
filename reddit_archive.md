@@ -1004,3 +1004,11 @@
 - [The game just started this some bullshit](https://www.reddit.com/r/Silksong/comments/1qnu9x9/the_game_just_started_this_some_bullshit/)
 - [am I the only one who has these new grub textures?](https://www.reddit.com/r/Silksong/comments/1qnqezl/am_i_the_only_one_who_has_these_new_grub_textures/)
 - [Let's freakin' go! I unlocked this entry!](https://www.reddit.com/r/Silksong/comments/1qne687/lets_freakin_go_i_unlocked_this_entry/)
+
+## 2026-01-28
+### r/Silksong — hot (day)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [New interview with TC on Bloomberg](https://www.reddit.com/r/Silksong/comments/1p9ci76/new_interview_with_tc_on_bloomberg/)
+- [HOW MUCH MORE OF THESE STUPID CHORUSES DO I HAVE TO FIGHT](https://www.reddit.com/r/Silksong/comments/1qoee7v/how_much_more_of_these_stupid_choruses_do_i_have/)
+- [jesus fucking christ its so longgg](https://www.reddit.com/r/Silksong/comments/1qokcem/jesus_fucking_christ_its_so_longgg/)
+- [Day 13 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qolnfx/day_13_of_fighting_savage_beastfly_everyday_until/)
