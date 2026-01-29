@@ -1012,3 +1012,11 @@
 - [HOW MUCH MORE OF THESE STUPID CHORUSES DO I HAVE TO FIGHT](https://www.reddit.com/r/Silksong/comments/1qoee7v/how_much_more_of_these_stupid_choruses_do_i_have/)
 - [jesus fucking christ its so longgg](https://www.reddit.com/r/Silksong/comments/1qokcem/jesus_fucking_christ_its_so_longgg/)
 - [Day 13 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qolnfx/day_13_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-01-29
+### r/Silksong — hot (day)
+- [Regarding recent political posts](https://www.reddit.com/r/Silksong/comments/1qp39ln/regarding_recent_political_posts/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Leth debunks the DLC rumours](https://www.reddit.com/r/Silksong/comments/1qpgk4t/leth_debunks_the_dlc_rumours/)
+- [Is there any way to disable this feature? It's starting to get really overwhelming.](https://www.reddit.com/r/Silksong/comments/1qpn6p5/is_there_any_way_to_disable_this_feature_its/)
+- [Day 14 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qpiz8k/day_14_of_fighting_savage_beastfly_everyday_until/)
