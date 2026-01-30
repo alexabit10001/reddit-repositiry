@@ -1020,3 +1020,11 @@
 - [Leth debunks the DLC rumours](https://www.reddit.com/r/Silksong/comments/1qpgk4t/leth_debunks_the_dlc_rumours/)
 - [Is there any way to disable this feature? It's starting to get really overwhelming.](https://www.reddit.com/r/Silksong/comments/1qpn6p5/is_there_any_way_to_disable_this_feature_its/)
 - [Day 14 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qpiz8k/day_14_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-01-30
+### r/Silksong — hot (day)
+- [Regarding recent political posts](https://www.reddit.com/r/Silksong/comments/1qp39ln/regarding_recent_political_posts/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [FUCKYOUFUCKYOUFUCKYOUFUCKYOUFUCKYOU YOU THINK YOU CAN DUNK ME IN YOUR FILTHY WATER???? WELL I'LL PISS GOLDEN FUCKING SHOWERS ON YOUR FACE!!!!! NOT SO FUNNY NOW IS IT???????](https://www.reddit.com/r/Silksong/comments/1qqcr9t/fuckyoufuckyoufuckyoufuckyoufuckyou_you_think_you/)
+- [Hidden Unused Asset "Shakra_final_death_scene_V3.png" found using a Devkit on a PS4 and a PS5](https://www.reddit.com/r/Silksong/comments/1qqamy3/hidden_unused_asset_shakra_final_death_scene/)
+- [Just got to Groal. Why the hell is the arena completely soaked in urine???](https://www.reddit.com/r/Silksong/comments/1qqi6jp/just_got_to_groal_why_the_hell_is_the_arena/)
