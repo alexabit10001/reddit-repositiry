@@ -1036,3 +1036,11 @@
 - [it's like watching a train wreck](https://www.reddit.com/r/Silksong/comments/1qrc2yx/its_like_watching_a_train_wreck/)
 - [Day 16 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qrddlv/day_16_of_fighting_savage_beastfly_everyday_until/)
 - [just fucking kill me](https://www.reddit.com/r/Silksong/comments/1qqzac5/just_fucking_kill_me/)
+
+## 2026-02-01
+### r/Silksong — hot (day)
+- [Regarding recent political posts](https://www.reddit.com/r/Silksong/comments/1qp39ln/regarding_recent_political_posts/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [achievement unlocked: have one your posts piss of the king of cockroaches](https://www.reddit.com/r/Silksong/comments/1qs4poq/achievement_unlocked_have_one_your_posts_piss_of/)
+- [Day 17 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qsa3er/day_17_of_fighting_savage_beastfly_everyday_until/)
+- [New player here, which controller layout should I use?](https://www.reddit.com/r/Silksong/comments/1qrxyit/new_player_here_which_controller_layout_should_i/)
