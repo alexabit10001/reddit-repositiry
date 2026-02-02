@@ -1044,3 +1044,11 @@
 - [achievement unlocked: have one your posts piss of the king of cockroaches](https://www.reddit.com/r/Silksong/comments/1qs4poq/achievement_unlocked_have_one_your_posts_piss_of/)
 - [Day 17 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qsa3er/day_17_of_fighting_savage_beastfly_everyday_until/)
 - [New player here, which controller layout should I use?](https://www.reddit.com/r/Silksong/comments/1qrxyit/new_player_here_which_controller_layout_should_i/)
+
+## 2026-02-02
+### r/Silksong — hot (day)
+- [Regarding recent political posts](https://www.reddit.com/r/Silksong/comments/1qp39ln/regarding_recent_political_posts/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [And they said entering my real age wouldn't effect gameplay](https://www.reddit.com/r/Silksong/comments/1qtbimg/and_they_said_entering_my_real_age_wouldnt_effect/)
+- [What is this roach on about](https://www.reddit.com/r/Silksong/comments/1qt0vf9/what_is_this_roach_on_about/)
+- [It's so cool how many developers have put Silksong references into their games.](https://www.reddit.com/r/Silksong/comments/1qt2rra/its_so_cool_how_many_developers_have_put_silksong/)
