@@ -1052,3 +1052,6 @@
 - [And they said entering my real age wouldn't effect gameplay](https://www.reddit.com/r/Silksong/comments/1qtbimg/and_they_said_entering_my_real_age_wouldnt_effect/)
 - [What is this roach on about](https://www.reddit.com/r/Silksong/comments/1qt0vf9/what_is_this_roach_on_about/)
 - [It's so cool how many developers have put Silksong references into their games.](https://www.reddit.com/r/Silksong/comments/1qt2rra/its_so_cool_how_many_developers_have_put_silksong/)
+
+## 2026-02-03
+### r/Silksong — hot (day)
