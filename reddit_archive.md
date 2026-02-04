@@ -1055,3 +1055,11 @@
 
 ## 2026-02-03
 ### r/Silksong — hot (day)
+
+## 2026-02-04
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Does anyone know a place where I can get shard bundles in bulk?](https://www.reddit.com/r/Silksong/comments/1quz1on/does_anyone_know_a_place_where_i_can_get_shard/)
+- [I'm deleting this fuсkass game](https://www.reddit.com/r/Silksong/comments/1qupuzd/im_deleting_this_fuсkass_game/)
+- [Day 20 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1quzr29/day_20_of_fighting_savage_beastfly_everyday_until/)
