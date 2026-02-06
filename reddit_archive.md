@@ -1071,3 +1071,11 @@
 - [Looks like the Switch version is now definitively the worst way to play the game.](https://www.reddit.com/r/Silksong/comments/1qvstzr/looks_like_the_switch_version_is_now_definitively/)
 - [Why did it have to be zaza 😔😔😔](https://www.reddit.com/r/Silksong/comments/1qvu69v/why_did_it_have_to_be_zaza/)
 - [Wait WHAT??????](https://www.reddit.com/r/Silksong/comments/1qvrzjx/wait_what/)
+
+## 2026-02-06
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Fun Fact: You can bankrupt the Ladybugs if you win enough Rosaries from them](https://www.reddit.com/r/Silksong/comments/1qwtknj/fun_fact_you_can_bankrupt_the_ladybugs_if_you_win/)
+- [I hate how dark this game gets sometimes](https://www.reddit.com/r/Silksong/comments/1qwo4v7/i_hate_how_dark_this_game_gets_sometimes/)
+- [Day 22 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qwt4j6/day_22_of_fighting_savage_beastfly_everyday_until/)
