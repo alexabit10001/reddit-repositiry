@@ -1079,3 +1079,11 @@
 - [Fun Fact: You can bankrupt the Ladybugs if you win enough Rosaries from them](https://www.reddit.com/r/Silksong/comments/1qwtknj/fun_fact_you_can_bankrupt_the_ladybugs_if_you_win/)
 - [I hate how dark this game gets sometimes](https://www.reddit.com/r/Silksong/comments/1qwo4v7/i_hate_how_dark_this_game_gets_sometimes/)
 - [Day 22 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qwt4j6/day_22_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-02-07
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [FUСK TEAN CHERRY FUСK THIS GAME FUСK MY LIFE FUСK MY LUCK FUСK EVERYTHING I WAS SO CLOSE](https://www.reddit.com/r/Silksong/comments/1qxn4b1/fuсk_tean_cherry_fuсk_this_game_fuсk_my_life_fuсk/)
+- [Team Cherry's Message To The Community](https://www.reddit.com/r/Silksong/comments/1qxd75m/team_cherrys_message_to_the_community/)
+- [Why did nobody tell me I could get his help? (First Act)](https://www.reddit.com/r/Silksong/comments/1qxsrlp/why_did_nobody_tell_me_i_could_get_his_help_first/)
