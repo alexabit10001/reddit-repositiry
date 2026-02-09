@@ -1095,3 +1095,11 @@
 - [Pretty massive missed potential that the 3DS version didn't do more with the bottom screen.](https://www.reddit.com/r/Silksong/comments/1qyi73v/pretty_massive_missed_potential_that_the_3ds/)
 - [Seth really was the best of us](https://www.reddit.com/r/Silksong/comments/1qyq8bk/seth_really_was_the_best_of_us/)
 - [Potential Mt Fay skip](https://www.reddit.com/r/Silksong/comments/1qym5dh/potential_mt_fay_skip/)
+
+## 2026-02-09
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Day 25 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qzgksz/day_25_of_fighting_savage_beastfly_everyday_until/)
+- [EIRA NOOOOO, THATS THE WRONG FLEA](https://www.reddit.com/r/Silksong/comments/1qzem0e/eira_nooooo_thats_the_wrong_flea/)
+- [HOLY SHITTTTTTTTTTTTTTTTTTTTTT](https://www.reddit.com/r/Silksong/comments/1qzi1w4/holy_shitttttttttttttttttttttt/)
