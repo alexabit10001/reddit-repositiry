@@ -1103,3 +1103,11 @@
 - [Day 25 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1qzgksz/day_25_of_fighting_savage_beastfly_everyday_until/)
 - [EIRA NOOOOO, THATS THE WRONG FLEA](https://www.reddit.com/r/Silksong/comments/1qzem0e/eira_nooooo_thats_the_wrong_flea/)
 - [HOLY SHITTTTTTTTTTTTTTTTTTTTTT](https://www.reddit.com/r/Silksong/comments/1qzi1w4/holy_shitttttttttttttttttttttt/)
+
+## 2026-02-10
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [CODE RED, CODE RED, THIS IS NOT A DRILL, I REPEAT THIS IS NOT A DRILL](https://www.reddit.com/r/Silksong/comments/1r0cd14/code_red_code_red_this_is_not_a_drill_i_repeat/)
+- [More Silksong OST just dropped, so far it's peak](https://www.reddit.com/r/Silksong/comments/1r0gnbo/more_silksong_ost_just_dropped_so_far_its_peak/)
+- [Day 26 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1r0c3z5/day_26_of_fighting_savage_beastfly_everyday_until/)
