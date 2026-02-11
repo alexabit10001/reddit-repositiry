@@ -1111,3 +1111,11 @@
 - [CODE RED, CODE RED, THIS IS NOT A DRILL, I REPEAT THIS IS NOT A DRILL](https://www.reddit.com/r/Silksong/comments/1r0cd14/code_red_code_red_this_is_not_a_drill_i_repeat/)
 - [More Silksong OST just dropped, so far it's peak](https://www.reddit.com/r/Silksong/comments/1r0gnbo/more_silksong_ost_just_dropped_so_far_its_peak/)
 - [Day 26 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1r0c3z5/day_26_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-02-11
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [I FKN HATE THIS GAUNTLET!!](https://www.reddit.com/r/Silksong/comments/1r1bis6/i_fkn_hate_this_gauntlet/)
+- [it is a truly sad day.](https://www.reddit.com/r/Silksong/comments/1r113at/it_is_a_truly_sad_day/)
+- [Silksong came out when I was 7. I'm now 8, and I'm here to remember my childhood.](https://www.reddit.com/r/Silksong/comments/1r0yrah/silksong_came_out_when_i_was_7_im_now_8_and_im/)
