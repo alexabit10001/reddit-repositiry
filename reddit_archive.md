@@ -1119,3 +1119,11 @@
 - [I FKN HATE THIS GAUNTLET!!](https://www.reddit.com/r/Silksong/comments/1r1bis6/i_fkn_hate_this_gauntlet/)
 - [it is a truly sad day.](https://www.reddit.com/r/Silksong/comments/1r113at/it_is_a_truly_sad_day/)
 - [Silksong came out when I was 7. I'm now 8, and I'm here to remember my childhood.](https://www.reddit.com/r/Silksong/comments/1r0yrah/silksong_came_out_when_i_was_7_im_now_8_and_im/)
+
+## 2026-02-12
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [In Hollow Knight: Silksong (2025) right after you beat the most annoying boss in the game, you are treated to this face with a creepy smile. This is of course a reference to me, because I'm delusional.](https://www.reddit.com/r/Silksong/comments/1r1snuy/in_hollow_knight_silksong_2025_right_after_you/)
+- [Day 28 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1r253sq/day_28_of_fighting_savage_beastfly_everyday_until/)
+- [These guys are so annoying!](https://www.reddit.com/r/Silksong/comments/1r29xlx/these_guys_are_so_annoying/)
