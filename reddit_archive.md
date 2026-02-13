@@ -1127,3 +1127,11 @@
 - [In Hollow Knight: Silksong (2025) right after you beat the most annoying boss in the game, you are treated to this face with a creepy smile. This is of course a reference to me, because I'm delusional.](https://www.reddit.com/r/Silksong/comments/1r1snuy/in_hollow_knight_silksong_2025_right_after_you/)
 - [Day 28 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1r253sq/day_28_of_fighting_savage_beastfly_everyday_until/)
 - [These guys are so annoying!](https://www.reddit.com/r/Silksong/comments/1r29xlx/these_guys_are_so_annoying/)
+
+## 2026-02-13
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [They did it again....](https://www.reddit.com/r/Silksong/comments/1r2xrr6/they_did_it_again/)
+- [Yeah, I'm not falling for this again](https://www.reddit.com/r/Silksong/comments/1r39hzw/yeah_im_not_falling_for_this_again/)
+- [THIS IS FOR LETH, YOU FUCKING ASSHOLES!!!](https://www.reddit.com/r/Silksong/comments/1r2nzv4/this_is_for_leth_you_fucking_assholes/)
