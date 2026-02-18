@@ -1167,3 +1167,6 @@
 - [Just started a new steel soul run. I'm glad they have a lot of intro variations so it doesn't get boring](https://www.reddit.com/r/Silksong/comments/1r6aw3c/just_started_a_new_steel_soul_run_im_glad_they/)
 - [Any Tips for Beating this Boss? They have zero openings...](https://www.reddit.com/r/Silksong/comments/1r6hnzt/any_tips_for_beating_this_boss_they_have_zero/)
 - [This community when it comes to subtext](https://www.reddit.com/r/Silksong/comments/1r6er94/this_community_when_it_comes_to_subtext/)
+
+## 2026-02-18
+### r/Silksong — hot (day)
