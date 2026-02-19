@@ -1170,3 +1170,11 @@
 
 ## 2026-02-18
 ### r/Silksong — hot (day)
+
+## 2026-02-19
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [u/AI_660 has deleted their account](https://www.reddit.com/r/Silksong/comments/1r8fufi/uai_660_has_deleted_their_account/)
+- [i hate this game](https://www.reddit.com/r/Silksong/comments/1r8219e/i_hate_this_game/)
+- [WHY ARE MICRO CELEBRITIES DROPPING LIKE FUCKING FLIES](https://www.reddit.com/r/Silksong/comments/1r845hz/why_are_micro_celebrities_dropping_like_fucking/)
