@@ -1178,3 +1178,11 @@
 - [u/AI_660 has deleted their account](https://www.reddit.com/r/Silksong/comments/1r8fufi/uai_660_has_deleted_their_account/)
 - [i hate this game](https://www.reddit.com/r/Silksong/comments/1r8219e/i_hate_this_game/)
 - [WHY ARE MICRO CELEBRITIES DROPPING LIKE FUCKING FLIES](https://www.reddit.com/r/Silksong/comments/1r845hz/why_are_micro_celebrities_dropping_like_fucking/)
+
+## 2026-02-20
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [bro this game is impossible](https://www.reddit.com/r/Silksong/comments/1r9fe3f/bro_this_game_is_impossible/)
+- [Oh my god act 4 just dropped and it's SO fucking good so far](https://www.reddit.com/r/Silksong/comments/1r8z6fz/oh_my_god_act_4_just_dropped_and_its_so_fucking/)
+- [Is it just me, or was the Cogfly 'upgrade' more of a downgrade?](https://www.reddit.com/r/Silksong/comments/1r97fi1/is_it_just_me_or_was_the_cogfly_upgrade_more_of_a/)
