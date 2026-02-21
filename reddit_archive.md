@@ -1186,3 +1186,11 @@
 - [bro this game is impossible](https://www.reddit.com/r/Silksong/comments/1r9fe3f/bro_this_game_is_impossible/)
 - [Oh my god act 4 just dropped and it's SO fucking good so far](https://www.reddit.com/r/Silksong/comments/1r8z6fz/oh_my_god_act_4_just_dropped_and_its_so_fucking/)
 - [Is it just me, or was the Cogfly 'upgrade' more of a downgrade?](https://www.reddit.com/r/Silksong/comments/1r97fi1/is_it_just_me_or_was_the_cogfly_upgrade_more_of_a/)
+
+## 2026-02-21
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [“I’ve been gone for *5 MINUTES* and you already started a civil war!”](https://www.reddit.com/r/Silksong/comments/1ra04wj/ive_been_gone_for_5_minutes_and_you_already/)
+- [Conductor romino's take on the problems in pharloom](https://www.reddit.com/r/Silksong/comments/1r9w811/conductor_rominos_take_on_the_problems_in_pharloom/)
+- [Day 37 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1ra3dy7/day_37_of_fighting_savage_beastfly_everyday_until/)
