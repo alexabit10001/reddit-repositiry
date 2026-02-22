@@ -1194,3 +1194,11 @@
 - [“I’ve been gone for *5 MINUTES* and you already started a civil war!”](https://www.reddit.com/r/Silksong/comments/1ra04wj/ive_been_gone_for_5_minutes_and_you_already/)
 - [Conductor romino's take on the problems in pharloom](https://www.reddit.com/r/Silksong/comments/1r9w811/conductor_rominos_take_on_the_problems_in_pharloom/)
 - [Day 37 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1ra3dy7/day_37_of_fighting_savage_beastfly_everyday_until/)
+
+## 2026-02-22
+### r/Silksong — hot (day)
+- [Mod Announcement. Posts about u/e1331 are banned for the foreseeable future because of heated arguments and misinformation.](https://www.reddit.com/r/Silksong/comments/1radyuw/mod_announcement_posts_about_ue1331_are_banned/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Team Cherry blog post of February 21st, 2026: "SILKSONG PATCH 5 AND SEA OF SORROW UPDATE"](https://www.reddit.com/r/Silksong/comments/1rb41yy/team_cherry_blog_post_of_february_21st_2026/)
+- [Making the game a JRPG was a weird move](https://www.reddit.com/r/Silksong/comments/1rb00l9/making_the_game_a_jrpg_was_a_weird_move/)
+- [80% of this community be like](https://www.reddit.com/r/Silksong/comments/1rap729/80_of_this_community_be_like/)
