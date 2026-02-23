@@ -1202,3 +1202,11 @@
 - [Team Cherry blog post of February 21st, 2026: "SILKSONG PATCH 5 AND SEA OF SORROW UPDATE"](https://www.reddit.com/r/Silksong/comments/1rb41yy/team_cherry_blog_post_of_february_21st_2026/)
 - [Making the game a JRPG was a weird move](https://www.reddit.com/r/Silksong/comments/1rb00l9/making_the_game_a_jrpg_was_a_weird_move/)
 - [80% of this community be like](https://www.reddit.com/r/Silksong/comments/1rap729/80_of_this_community_be_like/)
+
+## 2026-02-23
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Hornet, please don't make your visitors uncomfortable](https://www.reddit.com/r/Silksong/comments/1rbq7bu/hornet_please_dont_make_your_visitors/)
+- [Aura-Farming Sherma (by @Thdnjc)](https://www.reddit.com/r/Silksong/comments/1rbytez/aurafarming_sherma_by_thdnjc/)
+- [My daughter made me an analogue copy of Silksong for my birthday!](https://www.reddit.com/r/Silksong/comments/1rbplbz/my_daughter_made_me_an_analogue_copy_of_silksong/)
