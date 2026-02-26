@@ -1226,3 +1226,11 @@
 - [Can you prove your IQ with these Difficult 1000 IQ Games???!!!](https://www.reddit.com/r/Silksong/comments/1rdnkjg/can_you_prove_your_iq_with_these_difficult_1000/)
 - [No voice to cry suffering😭](https://www.reddit.com/r/Silksong/comments/1rd9a4s/no_voice_to_cry_suffering/)
 - [LETH HINTS AT SEA OF SORROW'S RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1rdjado/leth_hints_at_sea_of_sorrows_release_date/)
+
+## 2026-02-26
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Hornet comes to a realization (by @Himeragi136)](https://www.reddit.com/r/Silksong/comments/1ref4r4/hornet_comes_to_a_realization_by_himeragi136/)
+- [I think we can all agree on that one](https://www.reddit.com/r/Silksong/comments/1rejixg/i_think_we_can_all_agree_on_that_one/)
+- [Love the poly representation but this boss is complete bullshit](https://www.reddit.com/r/Silksong/comments/1ree8sa/love_the_poly_representation_but_this_boss_is/)
