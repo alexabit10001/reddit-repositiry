@@ -1242,3 +1242,11 @@
 - [This little girl very rudely woke me from my nap, what should I do?](https://www.reddit.com/r/Silksong/comments/1rf87d5/this_little_girl_very_rudely_woke_me_from_my_nap/)
 - [What if instead of Hornet being half-weaver she was half-beaver and built dams instead of using Silk skills?](https://www.reddit.com/r/Silksong/comments/1rffcew/what_if_instead_of_hornet_being_halfweaver_she/)
 - [HK elites and their guards](https://www.reddit.com/r/Silksong/comments/1rfbpym/hk_elites_and_their_guards/)
+
+## 2026-02-28
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Folding Ideas' newest video is about Silkposts](https://www.reddit.com/r/Silksong/comments/1rg64mw/folding_ideas_newest_video_is_about_silkposts/)
+- [Marvelous. Simply marvelous.](https://www.reddit.com/r/Silksong/comments/1rg6jbt/marvelous_simply_marvelous/)
+- [I calculated Hornets cloak’s volume for my Calculus class.](https://www.reddit.com/r/Silksong/comments/1rg7t8l/i_calculated_hornets_cloaks_volume_for_my/)
