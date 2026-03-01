@@ -1250,3 +1250,11 @@
 - [Folding Ideas' newest video is about Silkposts](https://www.reddit.com/r/Silksong/comments/1rg64mw/folding_ideas_newest_video_is_about_silkposts/)
 - [Marvelous. Simply marvelous.](https://www.reddit.com/r/Silksong/comments/1rg6jbt/marvelous_simply_marvelous/)
 - [I calculated Hornets cloak’s volume for my Calculus class.](https://www.reddit.com/r/Silksong/comments/1rg7t8l/i_calculated_hornets_cloaks_volume_for_my/)
+
+## 2026-03-01
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [WAIT NO STOP PLEASE PUT ME DOWN I'M SO SORRY](https://www.reddit.com/r/Silksong/comments/1rh2n72/wait_no_stop_please_put_me_down_im_so_sorry/)
+- [Fun Fact: If the Huge Flea is one of the first 5 fleas you collect, it will have its own separate icon](https://www.reddit.com/r/Silksong/comments/1rhafnd/fun_fact_if_the_huge_flea_is_one_of_the_first_5/)
+- [How much longer??😭](https://www.reddit.com/r/Silksong/comments/1rh0v5i/how_much_longer/)
