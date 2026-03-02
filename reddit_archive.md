@@ -1258,3 +1258,11 @@
 - [WAIT NO STOP PLEASE PUT ME DOWN I'M SO SORRY](https://www.reddit.com/r/Silksong/comments/1rh2n72/wait_no_stop_please_put_me_down_im_so_sorry/)
 - [Fun Fact: If the Huge Flea is one of the first 5 fleas you collect, it will have its own separate icon](https://www.reddit.com/r/Silksong/comments/1rhafnd/fun_fact_if_the_huge_flea_is_one_of_the_first_5/)
 - [How much longer??😭](https://www.reddit.com/r/Silksong/comments/1rh0v5i/how_much_longer/)
+
+## 2026-03-02
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Girl you can't be posting this](https://www.reddit.com/r/Silksong/comments/1ri3iyd/girl_you_cant_be_posting_this/)
+- [what's the deal with this boss](https://www.reddit.com/r/Silksong/comments/1rhy35y/whats_the_deal_with_this_boss/)
+- [Day 46/50 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1ri4op9/day_4650_of_fighting_savage_beastfly_everyday/)
