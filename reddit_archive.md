@@ -1274,3 +1274,11 @@
 - [Assuming that I would enjoy both of them the same way](https://www.reddit.com/r/Silksong/comments/1riyfdk/assuming_that_i_would_enjoy_both_of_them_the_same/)
 - [𓏏𓉔𓅂 𓏏𓂋𓇋𓊪𓃭𓅂𓏏𓋴 𓎼𓅲𓄿𓂋𓂧 𓏏𓉔𓅂 𓎢𓉔𓇋𓃭𓂧. 𓆑𓂋𓅂𓅂 𓇋𓏏 𓄿𓏏 𓃭𓄿𓋴𓏏 𓄿𓈖𓂧 𓃭𓅂𓏏 𓉔𓅂𓂋 𓋴𓅃𓇋𓅓 INDIE WORLD 𓆑𓉔𓂧𓎼𓎼𓆓𓋴𓅲𓇌𓋴𓎼𓅱𓄿𓎼𓉔𓅱𓅲𓉔𓂧𓂧𓎼𓋴𓅲𓎼𓂧𓉔𓉔𓆑SEA OF SORROW𓆓𓇋𓎼𓉔𓇌𓇋𓂧𓃀𓅃)𓈖𓇨𓆓𓂧𓉔𓉔𓂧𓉔𓂧𓎼𓂧𓎼𓉔𓂧𓎼𓉔𓂧𓎼𓆯𓂧𓅃(𓅱𓅂𓆓𓅲𓇋𓆓𓄿𓅲𓋴𓏏𓂋𓄿𓃭𓇋𓄿 𓅃𓇋𓃭](https://www.reddit.com/r/Silksong/comments/1rizjks/𓏏𓉔𓅂_𓏏𓂋𓇋𓊪𓃭𓅂𓏏𓋴_𓎼𓅲𓄿𓂋𓂧_𓏏𓉔𓅂_𓎢𓉔𓇋𓃭𓂧_𓆑𓂋𓅂𓅂_𓇋𓏏_𓄿𓏏_𓃭𓄿𓋴𓏏_𓄿𓈖𓂧/)
 - [Could this character be related to the Grimm Troupe? Has anyone else noticed this?](https://www.reddit.com/r/Silksong/comments/1risq1c/could_this_character_be_related_to_the_grimm/)
+
+## 2026-03-04
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Genuinely, what's the use case of this tool?](https://www.reddit.com/r/Silksong/comments/1rjynpz/genuinely_whats_the_use_case_of_this_tool/)
+- [We made it to twitter guys!](https://www.reddit.com/r/Silksong/comments/1rjrp5g/we_made_it_to_twitter_guys/)
+- [Nintendo crossed the line by going after Team Cherry. This is unacceptable](https://www.reddit.com/r/Silksong/comments/1rjq982/nintendo_crossed_the_line_by_going_after_team/)
