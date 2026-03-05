@@ -1282,3 +1282,11 @@
 - [Genuinely, what's the use case of this tool?](https://www.reddit.com/r/Silksong/comments/1rjynpz/genuinely_whats_the_use_case_of_this_tool/)
 - [We made it to twitter guys!](https://www.reddit.com/r/Silksong/comments/1rjrp5g/we_made_it_to_twitter_guys/)
 - [Nintendo crossed the line by going after Team Cherry. This is unacceptable](https://www.reddit.com/r/Silksong/comments/1rjq982/nintendo_crossed_the_line_by_going_after_team/)
+
+## 2026-03-05
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Hornet is back - Silksong comic (by @anna_bell_hauted_doll)](https://www.reddit.com/r/Silksong/comments/1rkrj5i/hornet_is_back_silksong_comic_by_anna_bell_hauted/)
+- [Idk, big Hornet](https://www.reddit.com/r/Silksong/comments/1rkzylc/idk_big_hornet/)
+- [Day 49/50 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1rktjbv/day_4950_of_fighting_savage_beastfly_everyday/)
