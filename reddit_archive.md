@@ -1290,3 +1290,11 @@
 - [Hornet is back - Silksong comic (by @anna_bell_hauted_doll)](https://www.reddit.com/r/Silksong/comments/1rkrj5i/hornet_is_back_silksong_comic_by_anna_bell_hauted/)
 - [Idk, big Hornet](https://www.reddit.com/r/Silksong/comments/1rkzylc/idk_big_hornet/)
 - [Day 49/50 of fighting Savage Beastfly everyday until I can't beat it anymore, but the most upvoted comment on this post decides how I make tomorrow's fight harder](https://www.reddit.com/r/Silksong/comments/1rktjbv/day_4950_of_fighting_savage_beastfly_everyday/)
+
+## 2026-03-06
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [On Day 50 of fighting Savage Beastfly everyday until I can't beat it anymore, I have finally been defeated.](https://www.reddit.com/r/Silksong/comments/1rlqbbs/on_day_50_of_fighting_savage_beastfly_everyday/)
+- [So, uh... where exactly is this purple quill again?](https://www.reddit.com/r/Silksong/comments/1rlplul/so_uh_where_exactly_is_this_purple_quill_again/)
+- [Sea of Sorrow DLC was planned even before the release of Silksong (confirmed in the code)](https://www.reddit.com/r/Silksong/comments/1rlk49d/sea_of_sorrow_dlc_was_planned_even_before_the/)
