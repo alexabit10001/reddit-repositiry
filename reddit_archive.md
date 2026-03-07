@@ -1298,3 +1298,11 @@
 - [On Day 50 of fighting Savage Beastfly everyday until I can't beat it anymore, I have finally been defeated.](https://www.reddit.com/r/Silksong/comments/1rlqbbs/on_day_50_of_fighting_savage_beastfly_everyday/)
 - [So, uh... where exactly is this purple quill again?](https://www.reddit.com/r/Silksong/comments/1rlplul/so_uh_where_exactly_is_this_purple_quill_again/)
 - [Sea of Sorrow DLC was planned even before the release of Silksong (confirmed in the code)](https://www.reddit.com/r/Silksong/comments/1rlk49d/sea_of_sorrow_dlc_was_planned_even_before_the/)
+
+## 2026-03-07
+### r/Silksong — hot (day)
+- [Mod Announcement: Silkposts Impersonating Mods Are Now Banned](https://www.reddit.com/r/Silksong/comments/1rmg3bd/mod_announcement_silkposts_impersonating_mods_are/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [I love you Karmelita [OC]](https://www.reddit.com/r/Silksong/comments/1rmqzya/i_love_you_karmelita_oc/)
+- [NO WAY LACE SAY THIS TO HORNET](https://www.reddit.com/r/Silksong/comments/1rmkpvv/no_way_lace_say_this_to_hornet/)
+- [Bro got humbled in one try...😭](https://www.reddit.com/r/Silksong/comments/1rm6zwd/bro_got_humbled_in_one_try/)
