@@ -1306,3 +1306,11 @@
 - [I love you Karmelita [OC]](https://www.reddit.com/r/Silksong/comments/1rmqzya/i_love_you_karmelita_oc/)
 - [NO WAY LACE SAY THIS TO HORNET](https://www.reddit.com/r/Silksong/comments/1rmkpvv/no_way_lace_say_this_to_hornet/)
 - [Bro got humbled in one try...😭](https://www.reddit.com/r/Silksong/comments/1rm6zwd/bro_got_humbled_in_one_try/)
+
+## 2026-03-08
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [The official White House account just posted this on Twitter...](https://www.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/)
+- [International Women’s Day 2026](https://www.reddit.com/r/Silksong/comments/1rnmjv2/international_womens_day_2026/)
+- [Hornet Rated M for mature](https://www.reddit.com/r/Silksong/comments/1rnayxf/hornet_rated_m_for_mature/)
