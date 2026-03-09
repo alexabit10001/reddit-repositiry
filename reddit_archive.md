@@ -1314,3 +1314,11 @@
 - [The official White House account just posted this on Twitter...](https://www.reddit.com/r/Silksong/comments/1rncw27/the_official_white_house_account_just_posted_this/)
 - [International Women’s Day 2026](https://www.reddit.com/r/Silksong/comments/1rnmjv2/international_womens_day_2026/)
 - [Hornet Rated M for mature](https://www.reddit.com/r/Silksong/comments/1rnayxf/hornet_rated_m_for_mature/)
+
+## 2026-03-09
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Newest Silksong patch removes the Conductor mask from the edge of Pharloom](https://www.reddit.com/r/Silksong/comments/1roixnw/newest_silksong_patch_removes_the_conductor_mask/)
+- [The truth Team Cherry doesn't want you to know](https://www.reddit.com/r/Silksong/comments/1roax1b/the_truth_team_cherry_doesnt_want_you_to_know/)
+- [zero animal instinct](https://www.reddit.com/r/Silksong/comments/1rolbx6/zero_animal_instinct/)
