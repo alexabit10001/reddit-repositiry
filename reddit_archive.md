@@ -1322,3 +1322,11 @@
 - [Newest Silksong patch removes the Conductor mask from the edge of Pharloom](https://www.reddit.com/r/Silksong/comments/1roixnw/newest_silksong_patch_removes_the_conductor_mask/)
 - [The truth Team Cherry doesn't want you to know](https://www.reddit.com/r/Silksong/comments/1roax1b/the_truth_team_cherry_doesnt_want_you_to_know/)
 - [zero animal instinct](https://www.reddit.com/r/Silksong/comments/1rolbx6/zero_animal_instinct/)
+
+## 2026-03-10
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Hair Perfection (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1rp2f87/hair_perfection_by_adouukoi/)
+- [Groal as a human 🪰](https://www.reddit.com/r/Silksong/comments/1roywws/groal_as_a_human/)
+- [WHAT DO YOU MEAN 6 MONTHS? WHAT DO YOU MEAN IT HAS BEEN THAT LONG?!?!](https://www.reddit.com/r/Silksong/comments/1rowr4z/what_do_you_mean_6_months_what_do_you_mean_it_has/)
