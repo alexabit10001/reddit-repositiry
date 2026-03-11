@@ -1330,3 +1330,11 @@
 - [Hair Perfection (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1rp2f87/hair_perfection_by_adouukoi/)
 - [Groal as a human 🪰](https://www.reddit.com/r/Silksong/comments/1roywws/groal_as_a_human/)
 - [WHAT DO YOU MEAN 6 MONTHS? WHAT DO YOU MEAN IT HAS BEEN THAT LONG?!?!](https://www.reddit.com/r/Silksong/comments/1rowr4z/what_do_you_mean_6_months_what_do_you_mean_it_has/)
+
+## 2026-03-11
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [HR Knights: Sales Song - aka OL Hornet and Lace (by @ayalace_)](https://www.reddit.com/r/Silksong/comments/1rq636e/hr_knights_sales_song_aka_ol_hornet_and_lace_by/)
+- [jeeze leth why so rude](https://www.reddit.com/r/Silksong/comments/1rpu9y6/jeeze_leth_why_so_rude/)
+- [Fun Fact: Silksong just killed Denji from Chainsaw Man](https://www.reddit.com/r/Silksong/comments/1rq6ix1/fun_fact_silksong_just_killed_denji_from_chainsaw/)
