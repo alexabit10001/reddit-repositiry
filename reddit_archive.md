@@ -1338,3 +1338,11 @@
 - [HR Knights: Sales Song - aka OL Hornet and Lace (by @ayalace_)](https://www.reddit.com/r/Silksong/comments/1rq636e/hr_knights_sales_song_aka_ol_hornet_and_lace_by/)
 - [jeeze leth why so rude](https://www.reddit.com/r/Silksong/comments/1rpu9y6/jeeze_leth_why_so_rude/)
 - [Fun Fact: Silksong just killed Denji from Chainsaw Man](https://www.reddit.com/r/Silksong/comments/1rq6ix1/fun_fact_silksong_just_killed_denji_from_chainsaw/)
+
+## 2026-03-12
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [[tenspontaneite] Hornet mandibles study](https://www.reddit.com/r/Silksong/comments/1rqv5iy/tenspontaneite_hornet_mandibles_study/)
+- [phantom cosplay - by me](https://www.reddit.com/r/Silksong/comments/1rr5bw4/phantom_cosplay_by_me/)
+- [Words can't express how much I want to buy the bundle....But I also don't want to spend money on Fortnite cosmetics!](https://www.reddit.com/r/Silksong/comments/1rqt2c1/words_cant_express_how_much_i_want_to_buy_the/)
