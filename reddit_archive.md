@@ -1346,3 +1346,11 @@
 - [[tenspontaneite] Hornet mandibles study](https://www.reddit.com/r/Silksong/comments/1rqv5iy/tenspontaneite_hornet_mandibles_study/)
 - [phantom cosplay - by me](https://www.reddit.com/r/Silksong/comments/1rr5bw4/phantom_cosplay_by_me/)
 - [Words can't express how much I want to buy the bundle....But I also don't want to spend money on Fortnite cosmetics!](https://www.reddit.com/r/Silksong/comments/1rqt2c1/words_cant_express_how_much_i_want_to_buy_the/)
+
+## 2026-03-13
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [My Hornet Cosplay (not ai)](https://www.reddit.com/r/Silksong/comments/1rs3g6l/my_hornet_cosplay_not_ai/)
+- [The flea takes his first adventure](https://www.reddit.com/r/Silksong/comments/1rrz33s/the_flea_takes_his_first_adventure/)
+- [Every single mention of Moorwing's original name is now censored or cut in every single video existing.](https://www.reddit.com/r/Silksong/comments/1rrs8o0/every_single_mention_of_moorwings_original_name/)
