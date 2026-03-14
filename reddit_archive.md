@@ -1354,3 +1354,11 @@
 - [My Hornet Cosplay (not ai)](https://www.reddit.com/r/Silksong/comments/1rs3g6l/my_hornet_cosplay_not_ai/)
 - [The flea takes his first adventure](https://www.reddit.com/r/Silksong/comments/1rrz33s/the_flea_takes_his_first_adventure/)
 - [Every single mention of Moorwing's original name is now censored or cut in every single video existing.](https://www.reddit.com/r/Silksong/comments/1rrs8o0/every_single_mention_of_moorwings_original_name/)
+
+## 2026-03-14
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Leon and Hornet chatting about their girlfriends (by @kokorvid)](https://www.reddit.com/r/Silksong/comments/1rsr117/leon_and_hornet_chatting_about_their_girlfriends/)
+- [I drew all 6 silk skills](https://www.reddit.com/r/Silksong/comments/1rswjov/i_drew_all_6_silk_skills/)
+- [You should stop silkposting. Your not “crazy” not “insane” your cringe. It’s the same 5 jokes over and over in an echo chamber](https://www.reddit.com/r/Silksong/comments/1rt2ypy/you_should_stop_silkposting_your_not_crazy_not/)
