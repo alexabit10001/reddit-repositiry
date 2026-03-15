@@ -1362,3 +1362,11 @@
 - [Leon and Hornet chatting about their girlfriends (by @kokorvid)](https://www.reddit.com/r/Silksong/comments/1rsr117/leon_and_hornet_chatting_about_their_girlfriends/)
 - [I drew all 6 silk skills](https://www.reddit.com/r/Silksong/comments/1rswjov/i_drew_all_6_silk_skills/)
 - [You should stop silkposting. Your not “crazy” not “insane” your cringe. It’s the same 5 jokes over and over in an echo chamber](https://www.reddit.com/r/Silksong/comments/1rt2ypy/you_should_stop_silkposting_your_not_crazy_not/)
+
+## 2026-03-15
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Second time posting, less nervous](https://www.reddit.com/r/Silksong/comments/1rtpnz5/second_time_posting_less_nervous/)
+- [Hornet naked nsfw](https://www.reddit.com/r/Silksong/comments/1rtzu35/hornet_naked_nsfw/)
+- [yo what the hell is this](https://www.reddit.com/r/Silksong/comments/1rtuah9/yo_what_the_hell_is_this/)
