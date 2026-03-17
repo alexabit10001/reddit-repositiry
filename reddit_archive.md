@@ -1378,3 +1378,11 @@
 - ["why are you degenerates shipping bugs" oh my bitter winter geezer is this your first fandom?](https://www.reddit.com/r/Silksong/comments/1rupgxu/why_are_you_degenerates_shipping_bugs_oh_my/)
 - [Should I help out this NPC in Sinner's Road? Or is it better to save up my simple keys for now?](https://www.reddit.com/r/Silksong/comments/1rud0ah/should_i_help_out_this_npc_in_sinners_road_or_is/)
 - [I'm going to be the richest bug in Hallownest](https://www.reddit.com/r/Silksong/comments/1ruffs0/im_going_to_be_the_richest_bug_in_hallownest/)
+
+## 2026-03-17
+### r/Silksong — hot (day)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Announcing our official sister community](https://www.reddit.com/r/Silksong/comments/1qltxzy/announcing_our_official_sister_community/)
+- [Excuse me, but WTF Youtube?](https://www.reddit.com/r/Silksong/comments/1rvbnft/excuse_me_but_wtf_youtube/)
+- [New patch allows you to use Silksoar from the bottom of Moss Grotto all the way to Blasted Steps](https://www.reddit.com/r/Silksong/comments/1rvgwl0/new_patch_allows_you_to_use_silksoar_from_the/)
+- [I work at Team Cherry and worked on the Skills and Abilities part of the game. Would love to hear your thoughts. AMA!](https://www.reddit.com/r/Silksong/comments/1ruyuc7/i_work_at_team_cherry_and_worked_on_the_skills/)
