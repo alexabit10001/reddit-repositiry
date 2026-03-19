@@ -1394,3 +1394,11 @@
 - [they didnt, infact, delete there account.](https://www.reddit.com/r/Silksong/comments/1rw63ri/they_didnt_infact_delete_there_account/)
 - [What's up with this filter, it doesn't even look like hornet anymore](https://www.reddit.com/r/Silksong/comments/1rw65hf/whats_up_with_this_filter_it_doesnt_even_look/)
 - [simpler times, oh simple times before we knew what horrers would befall us.](https://www.reddit.com/r/Silksong/comments/1rwi4ej/simpler_times_oh_simple_times_before_we_knew_what/)
+
+## 2026-03-19
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [I unthicced Lace](https://www.reddit.com/r/Silksong/comments/1rxfkut/i_unthicced_lace/)
+- [This emo's taking too long in the ****ing public shower!](https://www.reddit.com/r/Silksong/comments/1rx1lbq/this_emos_taking_too_long_in_the_ing_public_shower/)
+- [I... I did it...](https://www.reddit.com/r/Silksong/comments/1rxbz18/i_i_did_it/)
