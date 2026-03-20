@@ -1402,3 +1402,11 @@
 - [I unthicced Lace](https://www.reddit.com/r/Silksong/comments/1rxfkut/i_unthicced_lace/)
 - [This emo's taking too long in the ****ing public shower!](https://www.reddit.com/r/Silksong/comments/1rx1lbq/this_emos_taking_too_long_in_the_ing_public_shower/)
 - [I... I did it...](https://www.reddit.com/r/Silksong/comments/1rxbz18/i_i_did_it/)
+
+## 2026-03-20
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [They do be hitting those moves though](https://www.reddit.com/r/Silksong/comments/1ry3a82/they_do_be_hitting_those_moves_though/)
+- [Guess who's back :) Semi transparent fabric is hard.](https://www.reddit.com/r/Silksong/comments/1rydiig/guess_whos_back_semi_transparent_fabric_is_hard/)
+- [Which NPC's death hit you the hardest? I'll start:](https://www.reddit.com/r/Silksong/comments/1rxwsry/which_npcs_death_hit_you_the_hardest_ill_start/)
