@@ -1418,3 +1418,11 @@
 - [01010011 01001001 01001100 01001011 01010011 01001111 01001110 01000111 00100000 01010011 01000101 01000001 00100000 01001111 01000110 00100000 01010011 01001111 01010010 01010010 01001111 01010111 00100000 SEA OF SORROW 01010100 01001111 01001101 01001111 01010010 01010010 01001111 01010111 0010000](https://www.reddit.com/r/Silksong/comments/1rz680p/01010011_01001001_01001100_01001011_01010011/)
 - [first episode of silk ball run came out - what are your thoughts?](https://www.reddit.com/r/Silksong/comments/1ryu394/first_episode_of_silk_ball_run_came_out_what_are/)
 - [Omg what this is so cuteee](https://www.reddit.com/r/Silksong/comments/1rz10ee/omg_what_this_is_so_cuteee/)
+
+## 2026-03-22
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [The new Sea of Sorrow leaks are crazy](https://www.reddit.com/r/Silksong/comments/1rzquz3/the_new_sea_of_sorrow_leaks_are_crazy/)
+- [many amazing features](https://www.reddit.com/r/Silksong/comments/1rztb7h/many_amazing_features/)
+- [Does this ever even appear in the game?](https://www.reddit.com/r/Silksong/comments/1s00of3/does_this_ever_even_appear_in_the_game/)
