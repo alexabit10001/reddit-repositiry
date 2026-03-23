@@ -1426,3 +1426,11 @@
 - [The new Sea of Sorrow leaks are crazy](https://www.reddit.com/r/Silksong/comments/1rzquz3/the_new_sea_of_sorrow_leaks_are_crazy/)
 - [many amazing features](https://www.reddit.com/r/Silksong/comments/1rztb7h/many_amazing_features/)
 - [Does this ever even appear in the game?](https://www.reddit.com/r/Silksong/comments/1s00of3/does_this_ever_even_appear_in_the_game/)
+
+## 2026-03-23
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [I UPSCALED HORNET USING DLSS5 | I DREW THIS NOT SOME STUPID AI](https://www.reddit.com/r/Silksong/comments/1s0wqgx/i_upscaled_hornet_using_dlss5_i_drew_this_not/)
+- [I didn't remember this cutscene having choices?](https://www.reddit.com/r/Silksong/comments/1s0tank/i_didnt_remember_this_cutscene_having_choices/)
+- [Magical Girl Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1s0mtr6/magical_girl_lace_by_17hornet77987/)
