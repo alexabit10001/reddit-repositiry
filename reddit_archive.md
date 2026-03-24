@@ -1434,3 +1434,11 @@
 - [I UPSCALED HORNET USING DLSS5 | I DREW THIS NOT SOME STUPID AI](https://www.reddit.com/r/Silksong/comments/1s0wqgx/i_upscaled_hornet_using_dlss5_i_drew_this_not/)
 - [I didn't remember this cutscene having choices?](https://www.reddit.com/r/Silksong/comments/1s0tank/i_didnt_remember_this_cutscene_having_choices/)
 - [Magical Girl Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1s0mtr6/magical_girl_lace_by_17hornet77987/)
+
+## 2026-03-24
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- ["This is my 'Wife'" (by @kirakira_0456)](https://www.reddit.com/r/Silksong/comments/1s1hkws/this_is_my_wife_by_kirakira_0456/)
+- [This fast travel system is confusing as shit](https://www.reddit.com/r/Silksong/comments/1s1clgr/this_fast_travel_system_is_confusing_as_shit/)
+- [Why does last judge keep yelling DIARRHEA](https://www.reddit.com/r/Silksong/comments/1s1rurj/why_does_last_judge_keep_yelling_diarrhea/)
