@@ -1450,3 +1450,11 @@
 - [Fun fact: you can eat the Courier's Rasher for a free heal](https://www.reddit.com/r/Silksong/comments/1s2dbfn/fun_fact_you_can_eat_the_couriers_rasher_for_a/)
 - [I get that Silksong is a difficult game, but this is ridiculous](https://www.reddit.com/r/Silksong/comments/1s2p65f/i_get_that_silksong_is_a_difficult_game_but_this/)
 - [I know this is a game BUT: have you ever let the fact that Hornet was using dirty ass medical tools on herself sink in? She found these in a dark, abandoned hospital and they were clearly used on other bug and not disinfected. There is such thing as chemolimgh poisoning, right?](https://www.reddit.com/r/Silksong/comments/1s2sexo/i_know_this_is_a_game_but_have_you_ever_let_the/)
+
+## 2026-03-26
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Corrupted Pale King (art by me) 🤍](https://www.reddit.com/r/Silksong/comments/1s3kv9n/corrupted_pale_king_art_by_me/)
+- [Need important advice](https://www.reddit.com/r/Silksong/comments/1s3lp1x/need_important_advice/)
+- [Why u shall never sketch hornet in a maid outfit..](https://www.reddit.com/r/Silksong/comments/1s3k0e7/why_u_shall_never_sketch_hornet_in_a_maid_outfit/)
