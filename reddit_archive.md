@@ -1458,3 +1458,11 @@
 - [Corrupted Pale King (art by me) 🤍](https://www.reddit.com/r/Silksong/comments/1s3kv9n/corrupted_pale_king_art_by_me/)
 - [Need important advice](https://www.reddit.com/r/Silksong/comments/1s3lp1x/need_important_advice/)
 - [Why u shall never sketch hornet in a maid outfit..](https://www.reddit.com/r/Silksong/comments/1s3k0e7/why_u_shall_never_sketch_hornet_in_a_maid_outfit/)
+
+## 2026-03-27
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Recent Silksong update adds a new bench](https://www.reddit.com/r/Silksong/comments/1s4d4u6/recent_silksong_update_adds_a_new_bench/)
+- [I can't even be safe in Facebook too, I just want to draw.](https://www.reddit.com/r/Silksong/comments/1s4ew6f/i_cant_even_be_safe_in_facebook_too_i_just_want/)
+- [My mom was laid to rest with Hornet by her side](https://www.reddit.com/r/Silksong/comments/1s49dbe/my_mom_was_laid_to_rest_with_hornet_by_her_side/)
