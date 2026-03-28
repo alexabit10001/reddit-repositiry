@@ -1466,3 +1466,11 @@
 - [Recent Silksong update adds a new bench](https://www.reddit.com/r/Silksong/comments/1s4d4u6/recent_silksong_update_adds_a_new_bench/)
 - [I can't even be safe in Facebook too, I just want to draw.](https://www.reddit.com/r/Silksong/comments/1s4ew6f/i_cant_even_be_safe_in_facebook_too_i_just_want/)
 - [My mom was laid to rest with Hornet by her side](https://www.reddit.com/r/Silksong/comments/1s49dbe/my_mom_was_laid_to_rest_with_hornet_by_her_side/)
+
+## 2026-03-28
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Hollow Knight x Nine Sols (by @Rnjqkfhdnwhgdk)](https://www.reddit.com/r/Silksong/comments/1s599yt/hollow_knight_x_nine_sols_by_rnjqkfhdnwhgdk/)
+- [I am utterly dissapointed in team cherry](https://www.reddit.com/r/Silksong/comments/1s54iro/i_am_utterly_dissapointed_in_team_cherry/)
+- [Does the first dinner just straight up have her yams out in the open?](https://www.reddit.com/r/Silksong/comments/1s5fpd1/does_the_first_dinner_just_straight_up_have_her/)
