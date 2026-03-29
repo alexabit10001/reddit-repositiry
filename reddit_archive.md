@@ -1474,3 +1474,11 @@
 - [Hollow Knight x Nine Sols (by @Rnjqkfhdnwhgdk)](https://www.reddit.com/r/Silksong/comments/1s599yt/hollow_knight_x_nine_sols_by_rnjqkfhdnwhgdk/)
 - [I am utterly dissapointed in team cherry](https://www.reddit.com/r/Silksong/comments/1s54iro/i_am_utterly_dissapointed_in_team_cherry/)
 - [Does the first dinner just straight up have her yams out in the open?](https://www.reddit.com/r/Silksong/comments/1s5fpd1/does_the_first_dinner_just_straight_up_have_her/)
+
+## 2026-03-29
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [am i supposed to just sit here now, im literally a fucking baby](https://www.reddit.com/r/Silksong/comments/1s6b24b/am_i_supposed_to_just_sit_here_now_im_literally_a/)
+- [Song...of Silk? (by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1s5zo2l/songof_silk_by_shantysixix/)
+- [HK and SS are NOT bug level. you can see smaller bugs in quirrels comic, the raindrops are small, the tweet said that hornet can throw the needle 25 yards or smt. THEY ARE NOT BUG SIZED (so if they were real you could had intercourse with one)](https://www.reddit.com/r/Silksong/comments/1s61or3/hk_and_ss_are_not_bug_level_you_can_see_smaller/)
