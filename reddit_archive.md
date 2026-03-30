@@ -1482,3 +1482,11 @@
 - [am i supposed to just sit here now, im literally a fucking baby](https://www.reddit.com/r/Silksong/comments/1s6b24b/am_i_supposed_to_just_sit_here_now_im_literally_a/)
 - [Song...of Silk? (by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1s5zo2l/songof_silk_by_shantysixix/)
 - [HK and SS are NOT bug level. you can see smaller bugs in quirrels comic, the raindrops are small, the tweet said that hornet can throw the needle 25 yards or smt. THEY ARE NOT BUG SIZED (so if they were real you could had intercourse with one)](https://www.reddit.com/r/Silksong/comments/1s61or3/hk_and_ss_are_not_bug_level_you_can_see_smaller/)
+
+## 2026-03-30
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [They can't keep getting away with this!!!](https://www.reddit.com/r/Silksong/comments/1s7991l/they_cant_keep_getting_away_with_this/)
+- [Portal AU: GLaDOS](https://www.reddit.com/r/Silksong/comments/1s729s7/portal_au_glados/)
+- [I finally completed the only two Metroidvania games in the world](https://www.reddit.com/r/Silksong/comments/1s6w4hf/i_finally_completed_the_only_two_metroidvania/)
