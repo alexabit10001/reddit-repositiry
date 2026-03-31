@@ -1490,3 +1490,11 @@
 - [They can't keep getting away with this!!!](https://www.reddit.com/r/Silksong/comments/1s7991l/they_cant_keep_getting_away_with_this/)
 - [Portal AU: GLaDOS](https://www.reddit.com/r/Silksong/comments/1s729s7/portal_au_glados/)
 - [I finally completed the only two Metroidvania games in the world](https://www.reddit.com/r/Silksong/comments/1s6w4hf/i_finally_completed_the_only_two_metroidvania/)
+
+## 2026-03-31
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [SHAKRA NOOOOOO-](https://www.reddit.com/r/Silksong/comments/1s7rfjk/shakra_noooooo/)
+- [meme redraw request](https://www.reddit.com/r/Silksong/comments/1s87x3l/meme_redraw_request/)
+- [The bug no one invited. Day 105 done in 90 minutes](https://www.reddit.com/r/Silksong/comments/1s7rkq6/the_bug_no_one_invited_day_105_done_in_90_minutes/)
