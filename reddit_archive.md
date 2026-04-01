@@ -1498,3 +1498,11 @@
 - [SHAKRA NOOOOOO-](https://www.reddit.com/r/Silksong/comments/1s7rfjk/shakra_noooooo/)
 - [meme redraw request](https://www.reddit.com/r/Silksong/comments/1s87x3l/meme_redraw_request/)
 - [The bug no one invited. Day 105 done in 90 minutes](https://www.reddit.com/r/Silksong/comments/1s7rkq6/the_bug_no_one_invited_day_105_done_in_90_minutes/)
+
+## 2026-04-01
+### r/Silksong — hot (day)
+- [[MOD POST] Indefinite Closure of r/Silksong](https://www.reddit.com/r/Silksong/comments/1s94ylx/mod_post_indefinite_closure_of_rsilksong/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Am I missing any areas?](https://www.reddit.com/r/Silksong/comments/1s8rp18/am_i_missing_any_areas/)
+- [Office AU; Drama in the Workplace (by @jummixe)](https://www.reddit.com/r/Silksong/comments/1s8muh6/office_au_drama_in_the_workplace_by_jummixe/)
+- [𓉔𓅂𓇌 𓎼𓄿𓈖𓎼 𓃭𓅂𓏏𓉔 𓉔𓅂𓄿𓂋 𓅱𓅲𓂋 𓎢𓂋𓇌 𓅃𓇋𓃭𓃭𓇋𓄿𓅓 𓊪𓅂𓃭𓃭𓅂𓈖 𓄿𓂋𓇋 𓎼𓇋𓃀𓋴𓅱𓈖 𓅓𓄿𓇌 SILKSONG sea of sorrow 𓂋𓅂𓃭𓅂𓄿𓋴𓅂 𓋴𓅱𓅱𓈖 𓅱𓈖 April 2nd 𓉔𓅂𓃭𓊪 𓅲𓋴 𓏏𓅂𓄿𓅓 𓎢𓉔𓅂𓂋𓂋𓇌 𓎼𓅱𓂧𓋴 𓅱𓆑 𓅃𓇋𓋴𓂧𓅱𓅓 𓄿𓈖𓂧 𓉔𓅂𓄿𓂋 𓅱𓅲𓂋 𓊪𓂋𓄿𓇌𓅂𓂋𓋴](https://www.reddit.com/r/Silksong/comments/1s8fw98/𓉔𓅂𓇌_𓎼𓄿𓈖𓎼_𓃭𓅂𓏏𓉔_𓉔𓅂𓄿𓂋_𓅱𓅲𓂋_𓎢𓂋𓇌_𓅃𓇋𓃭𓃭𓇋𓄿𓅓_𓊪𓅂𓃭𓃭𓅂𓈖_𓄿𓂋𓇋/)
