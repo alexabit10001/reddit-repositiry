@@ -1506,3 +1506,11 @@
 - [Am I missing any areas?](https://www.reddit.com/r/Silksong/comments/1s8rp18/am_i_missing_any_areas/)
 - [Office AU; Drama in the Workplace (by @jummixe)](https://www.reddit.com/r/Silksong/comments/1s8muh6/office_au_drama_in_the_workplace_by_jummixe/)
 - [𓉔𓅂𓇌 𓎼𓄿𓈖𓎼 𓃭𓅂𓏏𓉔 𓉔𓅂𓄿𓂋 𓅱𓅲𓂋 𓎢𓂋𓇌 𓅃𓇋𓃭𓃭𓇋𓄿𓅓 𓊪𓅂𓃭𓃭𓅂𓈖 𓄿𓂋𓇋 𓎼𓇋𓃀𓋴𓅱𓈖 𓅓𓄿𓇌 SILKSONG sea of sorrow 𓂋𓅂𓃭𓅂𓄿𓋴𓅂 𓋴𓅱𓅱𓈖 𓅱𓈖 April 2nd 𓉔𓅂𓃭𓊪 𓅲𓋴 𓏏𓅂𓄿𓅓 𓎢𓉔𓅂𓂋𓂋𓇌 𓎼𓅱𓂧𓋴 𓅱𓆑 𓅃𓇋𓋴𓂧𓅱𓅓 𓄿𓈖𓂧 𓉔𓅂𓄿𓂋 𓅱𓅲𓂋 𓊪𓂋𓄿𓇌𓅂𓂋𓋴](https://www.reddit.com/r/Silksong/comments/1s8fw98/𓉔𓅂𓇌_𓎼𓄿𓈖𓎼_𓃭𓅂𓏏𓉔_𓉔𓅂𓄿𓂋_𓅱𓅲𓂋_𓎢𓂋𓇌_𓅃𓇋𓃭𓃭𓇋𓄿𓅓_𓊪𓅂𓃭𓃭𓅂𓈖_𓄿𓂋𓇋/)
+
+## 2026-04-02
+### r/Silksong — hot (day)
+- [[MOD POST] Indefinite Closure of r/Silksong](https://www.reddit.com/r/Silksong/comments/1s94ylx/mod_post_indefinite_closure_of_rsilksong/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Hornet's idea of "April Fools" (by @glyphalodon)](https://www.reddit.com/r/Silksong/comments/1s9nxy8/hornets_idea_of_april_fools_by_glyphalodon/)
+- [We convinced the mods (Who convinced the admins) to add a fun little effect for r/silksong whenever you upvote a post in celebration of the Silkposting culture just for April 1st. Go wild my Skongers! Let the pretty particles send you on an upvoting spree!](https://www.reddit.com/r/Silksong/comments/1s9k8se/we_convinced_the_mods_who_convinced_the_admins_to/)
+- [I waited for this very day to post this!](https://www.reddit.com/r/Silksong/comments/1s9gxvo/i_waited_for_this_very_day_to_post_this/)
