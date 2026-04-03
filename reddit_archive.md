@@ -1514,3 +1514,11 @@
 - [Hornet's idea of "April Fools" (by @glyphalodon)](https://www.reddit.com/r/Silksong/comments/1s9nxy8/hornets_idea_of_april_fools_by_glyphalodon/)
 - [We convinced the mods (Who convinced the admins) to add a fun little effect for r/silksong whenever you upvote a post in celebration of the Silkposting culture just for April 1st. Go wild my Skongers! Let the pretty particles send you on an upvoting spree!](https://www.reddit.com/r/Silksong/comments/1s9k8se/we_convinced_the_mods_who_convinced_the_admins_to/)
 - [I waited for this very day to post this!](https://www.reddit.com/r/Silksong/comments/1s9gxvo/i_waited_for_this_very_day_to_post_this/)
+
+## 2026-04-03
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Hmmmmmmmmmmm.....](https://www.reddit.com/r/Silksong/comments/1sas9wo/hmmmmmmmmmmm/)
+- [Where are the male baddies????](https://www.reddit.com/r/Silksong/comments/1saj3pg/where_are_the_male_baddies/)
+- [Found out how to make Pavo be quiet AND got a new upgrade!](https://www.reddit.com/r/Silksong/comments/1sabcll/found_out_how_to_make_pavo_be_quiet_and_got_a_new/)
