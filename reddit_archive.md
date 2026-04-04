@@ -1522,3 +1522,11 @@
 - [Hmmmmmmmmmmm.....](https://www.reddit.com/r/Silksong/comments/1sas9wo/hmmmmmmmmmmm/)
 - [Where are the male baddies????](https://www.reddit.com/r/Silksong/comments/1saj3pg/where_are_the_male_baddies/)
 - [Found out how to make Pavo be quiet AND got a new upgrade!](https://www.reddit.com/r/Silksong/comments/1sabcll/found_out_how_to_make_pavo_be_quiet_and_got_a_new/)
+
+## 2026-04-04
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Day 1 of fighting the High Halls Gauntlet every day until I can't beat it anymore, but this post's top comment adds another wave to tomorrow's fight.](https://www.reddit.com/r/Silksong/comments/1sbjxhx/day_1_of_fighting_the_high_halls_gauntlet_every/)
+- [Lace • Portal AU](https://www.reddit.com/r/Silksong/comments/1sbihn5/lace_portal_au/)
+- [Ada Wong vs Hornet (Art by @NosebleedSamurai on X) It's part of a collab with @Yorhnychan on X](https://www.reddit.com/r/Silksong/comments/1sbromf/ada_wong_vs_hornet_art_by_nosebleedsamurai_on_x/)
