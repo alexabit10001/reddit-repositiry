@@ -1530,3 +1530,11 @@
 - [Day 1 of fighting the High Halls Gauntlet every day until I can't beat it anymore, but this post's top comment adds another wave to tomorrow's fight.](https://www.reddit.com/r/Silksong/comments/1sbjxhx/day_1_of_fighting_the_high_halls_gauntlet_every/)
 - [Lace • Portal AU](https://www.reddit.com/r/Silksong/comments/1sbihn5/lace_portal_au/)
 - [Ada Wong vs Hornet (Art by @NosebleedSamurai on X) It's part of a collab with @Yorhnychan on X](https://www.reddit.com/r/Silksong/comments/1sbromf/ada_wong_vs_hornet_art_by_nosebleedsamurai_on_x/)
+
+## 2026-04-05
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [TEAM CHERRY JUST UPLOADED A TRAILER FOR SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1sckafe/team_cherry_just_uploaded_a_trailer_for_sea_of/)
+- [Day 2 of fighting the High Halls Gauntlet every day until I can't beat it anymore, but this post's top comment adds another wave to tomorrow's fight.](https://www.reddit.com/r/Silksong/comments/1sceyx5/day_2_of_fighting_the_high_halls_gauntlet_every/)
+- [Silk cinema bro... 😔 (@Mewyfox on Twitter)](https://www.reddit.com/r/Silksong/comments/1sc47n3/silk_cinema_bro_mewyfox_on_twitter/)
