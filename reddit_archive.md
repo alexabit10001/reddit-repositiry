@@ -1538,3 +1538,11 @@
 - [TEAM CHERRY JUST UPLOADED A TRAILER FOR SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1sckafe/team_cherry_just_uploaded_a_trailer_for_sea_of/)
 - [Day 2 of fighting the High Halls Gauntlet every day until I can't beat it anymore, but this post's top comment adds another wave to tomorrow's fight.](https://www.reddit.com/r/Silksong/comments/1sceyx5/day_2_of_fighting_the_high_halls_gauntlet_every/)
 - [Silk cinema bro... 😔 (@Mewyfox on Twitter)](https://www.reddit.com/r/Silksong/comments/1sc47n3/silk_cinema_bro_mewyfox_on_twitter/)
+
+## 2026-04-06
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [(Not my image) Thought this was funny as hell](https://www.reddit.com/r/Silksong/comments/1sd9yp7/not_my_image_thought_this_was_funny_as_hell/)
+- [Mecha Hornet and Lace (by @MeaowoOwo)](https://www.reddit.com/r/Silksong/comments/1sdd0lg/mecha_hornet_and_lace_by_meaowoowo/)
+- [I'm just a bit confused](https://www.reddit.com/r/Silksong/comments/1sdii0p/im_just_a_bit_confused/)
