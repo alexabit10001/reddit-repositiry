@@ -1546,3 +1546,11 @@
 - [(Not my image) Thought this was funny as hell](https://www.reddit.com/r/Silksong/comments/1sd9yp7/not_my_image_thought_this_was_funny_as_hell/)
 - [Mecha Hornet and Lace (by @MeaowoOwo)](https://www.reddit.com/r/Silksong/comments/1sdd0lg/mecha_hornet_and_lace_by_meaowoowo/)
 - [I'm just a bit confused](https://www.reddit.com/r/Silksong/comments/1sdii0p/im_just_a_bit_confused/)
+
+## 2026-04-07
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Saw this at an airport. Nearly had a stroke.](https://www.reddit.com/r/Silksong/comments/1sedme4/saw_this_at_an_airport_nearly_had_a_stroke/)
+- [Protein (by @MiquellaDArt)](https://www.reddit.com/r/Silksong/comments/1se135n/protein_by_miquelladart/)
+- [Gemini stills think silksong hasnt released yet](https://www.reddit.com/r/Silksong/comments/1se2rst/gemini_stills_think_silksong_hasnt_released_yet/)
