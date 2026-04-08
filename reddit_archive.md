@@ -1554,3 +1554,11 @@
 - [Saw this at an airport. Nearly had a stroke.](https://www.reddit.com/r/Silksong/comments/1sedme4/saw_this_at_an_airport_nearly_had_a_stroke/)
 - [Protein (by @MiquellaDArt)](https://www.reddit.com/r/Silksong/comments/1se135n/protein_by_miquelladart/)
 - [Gemini stills think silksong hasnt released yet](https://www.reddit.com/r/Silksong/comments/1se2rst/gemini_stills_think_silksong_hasnt_released_yet/)
+
+## 2026-04-08
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [It's disappointing how useless the Bellhome upgrades are](https://www.reddit.com/r/Silksong/comments/1seykdv/its_disappointing_how_useless_the_bellhome/)
+- [What is the Hornet drinking? (by @MiquellaDArt)](https://www.reddit.com/r/Silksong/comments/1sf1pig/what_is_the_hornet_drinking_by_miquelladart/)
+- [Lace matching Hornet's mood (by @ayalace)](https://www.reddit.com/r/Silksong/comments/1sf6um4/lace_matching_hornets_mood_by_ayalace/)
