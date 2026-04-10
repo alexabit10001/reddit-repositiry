@@ -1570,3 +1570,11 @@
 - [here’s a matcha baby shaw](https://www.reddit.com/r/Silksong/comments/1sg49b6/heres_a_matcha_baby_shaw/)
 - [Does this image still holds true? And even after it becomes outdated?](https://www.reddit.com/r/Silksong/comments/1sg9nfa/does_this_image_still_holds_true_and_even_after/)
 - [Day 6 of fighting the High Halls Gauntlet every day until I can't beat it anymore, but this post's top comment makes tomorrow's fight harder.](https://www.reddit.com/r/Silksong/comments/1sfzrsj/day_6_of_fighting_the_high_halls_gauntlet_every/)
+
+## 2026-04-10
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [Leaked screenshots from a future DLC : Lost Sisters](https://www.reddit.com/r/Silksong/comments/1sgwol1/leaked_screenshots_from_a_future_dlc_lost_sisters/)
+- [Leaked boss from a future DLC : The Void (The Knight)](https://www.reddit.com/r/Silksong/comments/1sh2hn4/leaked_boss_from_a_future_dlc_the_void_the_knight/)
+- [William Pellen acknowledged us](https://www.reddit.com/r/Silksong/comments/1sgr3sa/william_pellen_acknowledged_us/)
