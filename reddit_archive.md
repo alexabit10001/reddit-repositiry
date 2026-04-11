@@ -1578,3 +1578,6 @@
 - [Leaked screenshots from a future DLC : Lost Sisters](https://www.reddit.com/r/Silksong/comments/1sgwol1/leaked_screenshots_from_a_future_dlc_lost_sisters/)
 - [Leaked boss from a future DLC : The Void (The Knight)](https://www.reddit.com/r/Silksong/comments/1sh2hn4/leaked_boss_from_a_future_dlc_the_void_the_knight/)
 - [William Pellen acknowledged us](https://www.reddit.com/r/Silksong/comments/1sgr3sa/william_pellen_acknowledged_us/)
+
+## 2026-04-11
+### r/Silksong — hot (day)
