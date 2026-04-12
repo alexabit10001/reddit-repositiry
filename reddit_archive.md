@@ -1581,3 +1581,11 @@
 
 ## 2026-04-11
 ### r/Silksong — hot (day)
+
+## 2026-04-12
+### r/Silksong — hot (day)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I built a checklist for every Silksong location! Ideal for new 100 % runs](https://www.reddit.com/r/Silksong/comments/1qlvqew/i_built_a_checklist_for_every_silksong_location/)
+- [The Last Judge 💀](https://www.reddit.com/r/Silksong/comments/1siyn2a/the_last_judge/)
+- [Some fanart made by me from a lil while ago that i might come back to finish the rest.](https://www.reddit.com/r/Silksong/comments/1sintkj/some_fanart_made_by_me_from_a_lil_while_ago_that/)
+- [PORTAL AU • Shakra](https://www.reddit.com/r/Silksong/comments/1siwa2u/portal_au_shakra/)
