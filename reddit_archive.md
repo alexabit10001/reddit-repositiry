@@ -1597,3 +1597,6 @@
 - [Strong Hornet ❤️ (by @anna_bell_hauted_doll)](https://www.reddit.com/r/Silksong/comments/1sjgway/strong_hornet_by_anna_bell_hauted_doll/)
 - [I crocheted Hornet! Cloak on or cloak off?](https://www.reddit.com/r/Silksong/comments/1sjewvp/i_crocheted_hornet_cloak_on_or_cloak_off/)
 - [The Bellhart Massacre - (Part of a future project)](https://www.reddit.com/r/Silksong/comments/1sjmt8r/the_bellhart_massacre_part_of_a_future_project/)
+
+## 2026-04-14
+### r/Silksong — hot (day)
