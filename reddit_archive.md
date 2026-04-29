@@ -1642,3 +1642,11 @@
 
 ## 2026-04-28
 ### r/Silksong — hot (day)
+
+## 2026-04-29
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Excuse you Team Cherry, what Is this bullshit](https://www.reddit.com/r/Silksong/comments/1syaqsz/excuse_you_team_cherry_what_is_this_bullshit/)
+- [When your roomate is just a talking spider (by @Fielder_4)](https://www.reddit.com/r/Silksong/comments/1sy412j/when_your_roomate_is_just_a_talking_spider_by/)
+- [Pin up Lace (@DragouMare/by me)](https://www.reddit.com/r/Silksong/comments/1sy1eks/pin_up_lace_dragoumareby_me/)
