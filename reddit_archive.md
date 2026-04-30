@@ -1650,3 +1650,11 @@
 - [Excuse you Team Cherry, what Is this bullshit](https://www.reddit.com/r/Silksong/comments/1syaqsz/excuse_you_team_cherry_what_is_this_bullshit/)
 - [When your roomate is just a talking spider (by @Fielder_4)](https://www.reddit.com/r/Silksong/comments/1sy412j/when_your_roomate_is_just_a_talking_spider_by/)
 - [Pin up Lace (@DragouMare/by me)](https://www.reddit.com/r/Silksong/comments/1sy1eks/pin_up_lace_dragoumareby_me/)
+
+## 2026-04-30
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [We got an early shipment at my job. Came with the warning "DO NOT PUT ON SHELVES UNTIL MAY 1"](https://www.reddit.com/r/Silksong/comments/1sz1of8/we_got_an_early_shipment_at_my_job_came_with_the/)
+- [Is Hornet part of the spider verse? (Super serious question)](https://www.reddit.com/r/Silksong/comments/1sz82j4/is_hornet_part_of_the_spider_verse_super_serious/)
+- [After 26 Days of fighting the High Halls Gauntlet every day, I have been defeated.](https://www.reddit.com/r/Silksong/comments/1szdsj4/after_26_days_of_fighting_the_high_halls_gauntlet/)
