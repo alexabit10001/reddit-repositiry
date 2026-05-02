@@ -1666,3 +1666,11 @@
 - [Pale King spotted in Hollow Knight concert](https://www.reddit.com/r/Silksong/comments/1t00rc0/pale_king_spotted_in_hollow_knight_concert/)
 - [I found those things on the street and they felt familiar...](https://www.reddit.com/r/Silksong/comments/1t012dr/i_found_those_things_on_the_street_and_they_felt/)
 - [Is there a reason for this peak in Google search for silksong?](https://www.reddit.com/r/Silksong/comments/1t01xlp/is_there_a_reason_for_this_peak_in_google_search/)
+
+## 2026-05-02
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [a (totally) helpful guide to git gud](https://www.reddit.com/r/Silksong/comments/1t14zwm/a_totally_helpful_guide_to_git_gud/)
+- [Hollow Knight art month day 1: Hornet (by @acheofslowdecay)](https://www.reddit.com/r/Silksong/comments/1t10u39/hollow_knight_art_month_day_1_hornet_by/)
+- [Unusual pillow (by @Himeragi136)](https://www.reddit.com/r/Silksong/comments/1t0tsyy/unusual_pillow_by_himeragi136/)
