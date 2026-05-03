@@ -1674,3 +1674,11 @@
 - [a (totally) helpful guide to git gud](https://www.reddit.com/r/Silksong/comments/1t14zwm/a_totally_helpful_guide_to_git_gud/)
 - [Hollow Knight art month day 1: Hornet (by @acheofslowdecay)](https://www.reddit.com/r/Silksong/comments/1t10u39/hollow_knight_art_month_day_1_hornet_by/)
 - [Unusual pillow (by @Himeragi136)](https://www.reddit.com/r/Silksong/comments/1t0tsyy/unusual_pillow_by_himeragi136/)
+
+## 2026-05-03
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Tweet from BlueSR: "The Leth interview is up on youtube! Yesterday, i had the fantastic opportunity to sit down with him and chat about all things Hollow Knight, Crowsworn and Silksong!"](https://www.reddit.com/r/Silksong/comments/1t22wdm/tweet_from_bluesr_the_leth_interview_is_up_on/)
+- [I thought of making a joke about this.](https://www.reddit.com/r/Silksong/comments/1t1xedo/i_thought_of_making_a_joke_about_this/)
+- [Hands off the Weaverthing](https://www.reddit.com/r/Silksong/comments/1t1s93e/hands_off_the_weaverthing/)
