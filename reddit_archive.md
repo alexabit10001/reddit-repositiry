@@ -1682,3 +1682,6 @@
 - [Tweet from BlueSR: "The Leth interview is up on youtube! Yesterday, i had the fantastic opportunity to sit down with him and chat about all things Hollow Knight, Crowsworn and Silksong!"](https://www.reddit.com/r/Silksong/comments/1t22wdm/tweet_from_bluesr_the_leth_interview_is_up_on/)
 - [I thought of making a joke about this.](https://www.reddit.com/r/Silksong/comments/1t1xedo/i_thought_of_making_a_joke_about_this/)
 - [Hands off the Weaverthing](https://www.reddit.com/r/Silksong/comments/1t1s93e/hands_off_the_weaverthing/)
+
+## 2026-05-04
+### r/Silksong — hot (day)
