@@ -1685,3 +1685,11 @@
 
 ## 2026-05-04
 ### r/Silksong — hot (day)
+
+## 2026-05-05
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [DLC release date officially announced by Team Cherry!](https://www.reddit.com/r/Silksong/comments/1t3s2ti/dlc_release_date_officially_announced_by_team/)
+- [I made a new reaction image](https://www.reddit.com/r/Silksong/comments/1t3w2jq/i_made_a_new_reaction_image/)
+- [removing the background blur is amazing](https://www.reddit.com/r/Silksong/comments/1t3fqgj/removing_the_background_blur_is_amazing/)
