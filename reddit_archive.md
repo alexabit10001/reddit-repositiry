@@ -1693,3 +1693,11 @@
 - [DLC release date officially announced by Team Cherry!](https://www.reddit.com/r/Silksong/comments/1t3s2ti/dlc_release_date_officially_announced_by_team/)
 - [I made a new reaction image](https://www.reddit.com/r/Silksong/comments/1t3w2jq/i_made_a_new_reaction_image/)
 - [removing the background blur is amazing](https://www.reddit.com/r/Silksong/comments/1t3fqgj/removing_the_background_blur_is_amazing/)
+
+## 2026-05-06
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [How Cringe (by @0Cyberspace0)](https://www.reddit.com/r/Silksong/comments/1t4hbwc/how_cringe_by_0cyberspace0/)
+- [TEAM CHERRY HAS OFFICIALLY ANNOUNCED SEA OF SORROW!](https://www.reddit.com/r/Silksong/comments/1t4f7cd/team_cherry_has_officially_announced_sea_of_sorrow/)
+- [DAYUM DIDNT KNOW PALE KING HAD ALLAT](https://www.reddit.com/r/Silksong/comments/1t4uw2i/dayum_didnt_know_pale_king_had_allat/)
