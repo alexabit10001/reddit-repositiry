@@ -1701,3 +1701,11 @@
 - [How Cringe (by @0Cyberspace0)](https://www.reddit.com/r/Silksong/comments/1t4hbwc/how_cringe_by_0cyberspace0/)
 - [TEAM CHERRY HAS OFFICIALLY ANNOUNCED SEA OF SORROW!](https://www.reddit.com/r/Silksong/comments/1t4f7cd/team_cherry_has_officially_announced_sea_of_sorrow/)
 - [DAYUM DIDNT KNOW PALE KING HAD ALLAT](https://www.reddit.com/r/Silksong/comments/1t4uw2i/dayum_didnt_know_pale_king_had_allat/)
+
+## 2026-05-07
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [LETH IS LEAKING DLC (no bait)](https://www.reddit.com/r/Silksong/comments/1t5s81w/leth_is_leaking_dlc_no_bait/)
+- [Made this meme from a yuri I've read](https://www.reddit.com/r/Silksong/comments/1t5gho3/made_this_meme_from_a_yuri_ive_read/)
+- [[Art by devi-dizz] Knight Convo ⚔️](https://www.reddit.com/r/Silksong/comments/1t5euzf/art_by_devidizz_knight_convo/)
