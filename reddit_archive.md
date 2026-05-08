@@ -1709,3 +1709,11 @@
 - [LETH IS LEAKING DLC (no bait)](https://www.reddit.com/r/Silksong/comments/1t5s81w/leth_is_leaking_dlc_no_bait/)
 - [Made this meme from a yuri I've read](https://www.reddit.com/r/Silksong/comments/1t5gho3/made_this_meme_from_a_yuri_ive_read/)
 - [[Art by devi-dizz] Knight Convo ⚔️](https://www.reddit.com/r/Silksong/comments/1t5euzf/art_by_devidizz_knight_convo/)
+
+## 2026-05-08
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I am so lonely.](https://www.reddit.com/r/Silksong/comments/1t6lxz2/i_am_so_lonely/)
+- [How many of you guys got this achievement?](https://www.reddit.com/r/Silksong/comments/1t6508r/how_many_of_you_guys_got_this_achievement/)
+- [Sea of Sorrow is officially out](https://www.reddit.com/r/Silksong/comments/1t69upa/sea_of_sorrow_is_officially_out/)
