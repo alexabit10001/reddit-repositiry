@@ -1717,3 +1717,11 @@
 - [I am so lonely.](https://www.reddit.com/r/Silksong/comments/1t6lxz2/i_am_so_lonely/)
 - [How many of you guys got this achievement?](https://www.reddit.com/r/Silksong/comments/1t6508r/how_many_of_you_guys_got_this_achievement/)
 - [Sea of Sorrow is officially out](https://www.reddit.com/r/Silksong/comments/1t69upa/sea_of_sorrow_is_officially_out/)
+
+## 2026-05-09
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Dawww~ I'm not even that far in the game and these two are already having a father-daughter time. So cute!!](https://www.reddit.com/r/Silksong/comments/1t7dyc2/dawww_im_not_even_that_far_in_the_game_and_these/)
+- [hetslop is back on the menu (human karmelita & khann)](https://www.reddit.com/r/Silksong/comments/1t7lmqz/hetslop_is_back_on_the_menu_human_karmelita_khann/)
+- [⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀](https://www.reddit.com/r/Silksong/comments/1t72np5/_/)
