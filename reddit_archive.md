@@ -1725,3 +1725,11 @@
 - [Dawww~ I'm not even that far in the game and these two are already having a father-daughter time. So cute!!](https://www.reddit.com/r/Silksong/comments/1t7dyc2/dawww_im_not_even_that_far_in_the_game_and_these/)
 - [hetslop is back on the menu (human karmelita & khann)](https://www.reddit.com/r/Silksong/comments/1t7lmqz/hetslop_is_back_on_the_menu_human_karmelita_khann/)
 - [⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀](https://www.reddit.com/r/Silksong/comments/1t72np5/_/)
+
+## 2026-05-10
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Hornet doing the scuttle dance](https://www.reddit.com/r/Silksong/comments/1t8nyry/hornet_doing_the_scuttle_dance/)
+- [The Last Dive [OC]](https://www.reddit.com/r/Silksong/comments/1t8k0h2/the_last_dive_oc/)
+- [i cant believe that anita sarkeesia was involved with this game, ITS WOKE GARBAGE AND I WANT A REFUND](https://www.reddit.com/r/Silksong/comments/1t81flf/i_cant_believe_that_anita_sarkeesia_was_involved/)
