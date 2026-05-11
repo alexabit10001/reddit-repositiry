@@ -1733,3 +1733,11 @@
 - [Hornet doing the scuttle dance](https://www.reddit.com/r/Silksong/comments/1t8nyry/hornet_doing_the_scuttle_dance/)
 - [The Last Dive [OC]](https://www.reddit.com/r/Silksong/comments/1t8k0h2/the_last_dive_oc/)
 - [i cant believe that anita sarkeesia was involved with this game, ITS WOKE GARBAGE AND I WANT A REFUND](https://www.reddit.com/r/Silksong/comments/1t81flf/i_cant_believe_that_anita_sarkeesia_was_involved/)
+
+## 2026-05-11
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Silksong Ai slop.](https://www.reddit.com/r/Silksong/comments/1t9dslb/silksong_ai_slop/)
+- [Cant believe act four is gonna replace hornet with this new "king of pharloom" character](https://www.reddit.com/r/Silksong/comments/1t9mczg/cant_believe_act_four_is_gonna_replace_hornet/)
+- [Jumping on an old woman? These citadel slaves have no shame!!](https://www.reddit.com/r/Silksong/comments/1t95iaw/jumping_on_an_old_woman_these_citadel_slaves_have/)
