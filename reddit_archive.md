@@ -1741,3 +1741,11 @@
 - [Silksong Ai slop.](https://www.reddit.com/r/Silksong/comments/1t9dslb/silksong_ai_slop/)
 - [Cant believe act four is gonna replace hornet with this new "king of pharloom" character](https://www.reddit.com/r/Silksong/comments/1t9mczg/cant_believe_act_four_is_gonna_replace_hornet/)
 - [Jumping on an old woman? These citadel slaves have no shame!!](https://www.reddit.com/r/Silksong/comments/1t95iaw/jumping_on_an_old_woman_these_citadel_slaves_have/)
+
+## 2026-05-12
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [It's nice that team cherry gave us the option between a Webhome and a Bellhome](https://www.reddit.com/r/Silksong/comments/1ta3zvy/its_nice_that_team_cherry_gave_us_the_option/)
+- [Grand Weaver Hornet (Invincible art meme by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1taj8sz/grand_weaver_hornet_invincible_art_meme_by/)
+- [Bugs vs Zombies (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1tadky2/bugs_vs_zombies_by_red_krabo/)
