@@ -1749,3 +1749,11 @@
 - [It's nice that team cherry gave us the option between a Webhome and a Bellhome](https://www.reddit.com/r/Silksong/comments/1ta3zvy/its_nice_that_team_cherry_gave_us_the_option/)
 - [Grand Weaver Hornet (Invincible art meme by @Shantysixix)](https://www.reddit.com/r/Silksong/comments/1taj8sz/grand_weaver_hornet_invincible_art_meme_by/)
 - [Bugs vs Zombies (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1tadky2/bugs_vs_zombies_by_red_krabo/)
+
+## 2026-05-13
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [This moment was intense](https://www.reddit.com/r/Silksong/comments/1tbe114/this_moment_was_intense/)
+- [*sigh* annoying red thing again? Beasty gotta kill quick this time and get back to smashing head!](https://www.reddit.com/r/Silksong/comments/1tb4spn/sigh_annoying_red_thing_again_beasty_gotta_kill/)
+- [New Silksong merch on Fangamer!](https://www.reddit.com/r/Silksong/comments/1tbauec/new_silksong_merch_on_fangamer/)
