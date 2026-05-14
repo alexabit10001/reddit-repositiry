@@ -1757,3 +1757,11 @@
 - [This moment was intense](https://www.reddit.com/r/Silksong/comments/1tbe114/this_moment_was_intense/)
 - [*sigh* annoying red thing again? Beasty gotta kill quick this time and get back to smashing head!](https://www.reddit.com/r/Silksong/comments/1tb4spn/sigh_annoying_red_thing_again_beasty_gotta_kill/)
 - [New Silksong merch on Fangamer!](https://www.reddit.com/r/Silksong/comments/1tbauec/new_silksong_merch_on_fangamer/)
+
+## 2026-05-14
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Last Judge runback is NOT hard](https://www.reddit.com/r/Silksong/comments/1tbzhz7/last_judge_runback_is_not_hard/)
+- [Didn't know Silksong can be played on car.](https://www.reddit.com/r/Silksong/comments/1tbuavr/didnt_know_silksong_can_be_played_on_car/)
+- [how do people think the runback is hard](https://www.reddit.com/r/Silksong/comments/1tcenri/how_do_people_think_the_runback_is_hard/)
