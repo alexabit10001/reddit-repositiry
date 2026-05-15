@@ -1765,3 +1765,11 @@
 - [Last Judge runback is NOT hard](https://www.reddit.com/r/Silksong/comments/1tbzhz7/last_judge_runback_is_not_hard/)
 - [Didn't know Silksong can be played on car.](https://www.reddit.com/r/Silksong/comments/1tbuavr/didnt_know_silksong_can_be_played_on_car/)
 - [how do people think the runback is hard](https://www.reddit.com/r/Silksong/comments/1tcenri/how_do_people_think_the_runback_is_hard/)
+
+## 2026-05-15
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Help a brother out, how do I beat her?](https://www.reddit.com/r/Silksong/comments/1tcs787/help_a_brother_out_how_do_i_beat_her/)
+- [I just got a new pet spider, what should I name her?](https://www.reddit.com/r/Silksong/comments/1td7osv/i_just_got_a_new_pet_spider_what_should_i_name_her/)
+- [Did you notice this change on Team Cherry's official website regarding the latest patch before Sea of Sorrow?](https://www.reddit.com/r/Silksong/comments/1td7pqx/did_you_notice_this_change_on_team_cherrys/)
