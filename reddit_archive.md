@@ -1773,3 +1773,6 @@
 - [Help a brother out, how do I beat her?](https://www.reddit.com/r/Silksong/comments/1tcs787/help_a_brother_out_how_do_i_beat_her/)
 - [I just got a new pet spider, what should I name her?](https://www.reddit.com/r/Silksong/comments/1td7osv/i_just_got_a_new_pet_spider_what_should_i_name_her/)
 - [Did you notice this change on Team Cherry's official website regarding the latest patch before Sea of Sorrow?](https://www.reddit.com/r/Silksong/comments/1td7pqx/did_you_notice_this_change_on_team_cherrys/)
+
+## 2026-05-16
+### r/Silksong — hot (day)
