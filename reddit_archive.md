@@ -1776,3 +1776,11 @@
 
 ## 2026-05-16
 ### r/Silksong — hot (day)
+
+## 2026-05-17
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [THE KNIGHT HAD A VOICE THIS WHOLE TIME????](https://www.reddit.com/r/Silksong/comments/1tf83pi/the_knight_had_a_voice_this_whole_time/)
+- [I don't remember Shakra being here.](https://www.reddit.com/r/Silksong/comments/1tepgef/i_dont_remember_shakra_being_here/)
+- [How to start the game?](https://www.reddit.com/r/Silksong/comments/1teuzje/how_to_start_the_game/)
