@@ -1792,3 +1792,11 @@
 - [The plot of Silksong DLC is like this](https://www.reddit.com/r/Silksong/comments/1tfu5a5/the_plot_of_silksong_dlc_is_like_this/)
 - [Mushroom Sisters (by @buttontoadstool)](https://www.reddit.com/r/Silksong/comments/1tfpeii/mushroom_sisters_by_buttontoadstool/)
 - [My Lace build on Elden Ring](https://www.reddit.com/r/Silksong/comments/1tfib0d/my_lace_build_on_elden_ring/)
+
+## 2026-05-19
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Not the flea she was expecting...](https://www.reddit.com/r/Silksong/comments/1tgrg3q/not_the_flea_she_was_expecting/)
+- [This runback is WAY TOO long!! Are there really no other hidden benches along the path?? What was Team Cherry thinking!!???](https://www.reddit.com/r/Silksong/comments/1th0y5e/this_runback_is_way_too_long_are_there_really_no/)
+- [The lag in this game is fucking insane, im literally averaging 5 fps how am i supposed to beat this boss](https://www.reddit.com/r/Silksong/comments/1tggvep/the_lag_in_this_game_is_fucking_insane_im/)
