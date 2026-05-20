@@ -1800,3 +1800,11 @@
 - [Not the flea she was expecting...](https://www.reddit.com/r/Silksong/comments/1tgrg3q/not_the_flea_she_was_expecting/)
 - [This runback is WAY TOO long!! Are there really no other hidden benches along the path?? What was Team Cherry thinking!!???](https://www.reddit.com/r/Silksong/comments/1th0y5e/this_runback_is_way_too_long_are_there_really_no/)
 - [The lag in this game is fucking insane, im literally averaging 5 fps how am i supposed to beat this boss](https://www.reddit.com/r/Silksong/comments/1tggvep/the_lag_in_this_game_is_fucking_insane_im/)
+
+## 2026-05-20
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [5 hours worth of handcrafted art...Covered in 85% blur](https://www.reddit.com/r/Silksong/comments/1thphnm/5_hours_worth_of_handcrafted_artcovered_in_85_blur/)
+- [You're just making it more awkward, Shakra (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1thms3u/youre_just_making_it_more_awkward_shakra_by_red/)
+- [Sea of Sorrow IS SO BIG](https://www.reddit.com/r/Silksong/comments/1thw0u4/sea_of_sorrow_is_so_big/)
