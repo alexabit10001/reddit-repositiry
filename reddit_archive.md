@@ -1808,3 +1808,11 @@
 - [5 hours worth of handcrafted art...Covered in 85% blur](https://www.reddit.com/r/Silksong/comments/1thphnm/5_hours_worth_of_handcrafted_artcovered_in_85_blur/)
 - [You're just making it more awkward, Shakra (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1thms3u/youre_just_making_it_more_awkward_shakra_by_red/)
 - [Sea of Sorrow IS SO BIG](https://www.reddit.com/r/Silksong/comments/1thw0u4/sea_of_sorrow_is_so_big/)
+
+## 2026-05-21
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [[hornetposting] still her baby](https://www.reddit.com/r/Silksong/comments/1tix8om/hornetposting_still_her_baby/)
+- [r/HollowKnight still does not recognize r/Silksong as a related community LMFAO 😭😭😭](https://www.reddit.com/r/Silksong/comments/1tiz22e/rhollowknight_still_does_not_recognize_rsilksong/)
+- [I hate that I have to wait in a queue to fight Trobbio now...Looks like his marketing campaign's doing well! But never in the princess’s immortal life would she take that weirdo's autogra- HORNET WHAT ARE YOU DOING?!? YOU'RE BETTER THAN THIS!](https://www.reddit.com/r/Silksong/comments/1tipit1/i_hate_that_i_have_to_wait_in_a_queue_to_fight/)
