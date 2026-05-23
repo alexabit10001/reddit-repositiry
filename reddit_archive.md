@@ -1824,3 +1824,11 @@
 - [Always in the shadow of greater things (by @GossamerCrowned)](https://www.reddit.com/r/Silksong/comments/1tjtiuq/always_in_the_shadow_of_greater_things_by/)
 - [Leth knows perfectly well that Reddit hates emojis. So of course, in typical Leth fashion, he decides to ragebait us all](https://www.reddit.com/r/Silksong/comments/1tjoka5/leth_knows_perfectly_well_that_reddit_hates/)
 - [the horrors of pharloom exploitation](https://www.reddit.com/r/Silksong/comments/1tjxmrs/the_horrors_of_pharloom_exploitation/)
+
+## 2026-05-23
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [[mirai-gaia] Break the cycle](https://www.reddit.com/r/Silksong/comments/1tkxfun/miraigaia_break_the_cycle/)
+- [The fact that pinstress didn't have the same emotional resolve the nailsmith had makes me very sad, like I wanna see her in far fields after the fatal resolve wish wearing a silly dress sewn by the seamstress](https://www.reddit.com/r/Silksong/comments/1tkudes/the_fact_that_pinstress_didnt_have_the_same/)
+- [100% accurate rendition of Sea of Sorrow's intro cutscene (by @timmy_longlegs)](https://www.reddit.com/r/Silksong/comments/1tkihju/100_accurate_rendition_of_sea_of_sorrows_intro/)
