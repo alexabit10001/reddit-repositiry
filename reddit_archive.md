@@ -1832,3 +1832,11 @@
 - [[mirai-gaia] Break the cycle](https://www.reddit.com/r/Silksong/comments/1tkxfun/miraigaia_break_the_cycle/)
 - [The fact that pinstress didn't have the same emotional resolve the nailsmith had makes me very sad, like I wanna see her in far fields after the fatal resolve wish wearing a silly dress sewn by the seamstress](https://www.reddit.com/r/Silksong/comments/1tkudes/the_fact_that_pinstress_didnt_have_the_same/)
 - [100% accurate rendition of Sea of Sorrow's intro cutscene (by @timmy_longlegs)](https://www.reddit.com/r/Silksong/comments/1tkihju/100_accurate_rendition_of_sea_of_sorrows_intro/)
+
+## 2026-05-24
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Yea whoop her ass hornet!!](https://www.reddit.com/r/Silksong/comments/1tlw4mz/yea_whoop_her_ass_hornet/)
+- [Any of you guys got this skill yet?](https://www.reddit.com/r/Silksong/comments/1tllbr0/any_of_you_guys_got_this_skill_yet/)
+- ["Ah yes. Me. My girlfriend. And her four foot tall Flea..." (by @iswacha)](https://www.reddit.com/r/Silksong/comments/1tlho8t/ah_yes_me_my_girlfriend_and_her_four_foot_tall/)
