@@ -1840,3 +1840,11 @@
 - [Yea whoop her ass hornet!!](https://www.reddit.com/r/Silksong/comments/1tlw4mz/yea_whoop_her_ass_hornet/)
 - [Any of you guys got this skill yet?](https://www.reddit.com/r/Silksong/comments/1tllbr0/any_of_you_guys_got_this_skill_yet/)
 - ["Ah yes. Me. My girlfriend. And her four foot tall Flea..." (by @iswacha)](https://www.reddit.com/r/Silksong/comments/1tlho8t/ah_yes_me_my_girlfriend_and_her_four_foot_tall/)
+
+## 2026-05-25
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Matthew "Leth" Griffin has changed his Twitter icon, banner](https://www.reddit.com/r/Silksong/comments/1tmla7w/matthew_leth_griffin_has_changed_his_twitter_icon/)
+- [[OFFICIAL] Geoff Keighley announces SGF Companies; Includes Team Cherry](https://www.reddit.com/r/Silksong/comments/1tmkeek/official_geoff_keighley_announces_sgf_companies/)
+- [Lesbian Bugs (art by @katatsumu_ktkt_)](https://www.reddit.com/r/Silksong/comments/1tmb2zg/lesbian_bugs_art_by_katatsumu_ktkt/)
