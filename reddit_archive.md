@@ -1848,3 +1848,11 @@
 - [Matthew "Leth" Griffin has changed his Twitter icon, banner](https://www.reddit.com/r/Silksong/comments/1tmla7w/matthew_leth_griffin_has_changed_his_twitter_icon/)
 - [[OFFICIAL] Geoff Keighley announces SGF Companies; Includes Team Cherry](https://www.reddit.com/r/Silksong/comments/1tmkeek/official_geoff_keighley_announces_sgf_companies/)
 - [Lesbian Bugs (art by @katatsumu_ktkt_)](https://www.reddit.com/r/Silksong/comments/1tmb2zg/lesbian_bugs_art_by_katatsumu_ktkt/)
+
+## 2026-05-26
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Lace fight but it's the JJK trend](https://www.reddit.com/r/Silksong/comments/1tnha98/lace_fight_but_its_the_jjk_trend/)
+- [Ragebaiting gone wrong (@unclepip)](https://www.reddit.com/r/Silksong/comments/1tnlk0r/ragebaiting_gone_wrong_unclepip/)
+- [Dug trough a landfill near Team Cherry's office and found some potential stuff from Sea Of Sorrow](https://www.reddit.com/r/Silksong/comments/1tnjm5q/dug_trough_a_landfill_near_team_cherrys_office/)
