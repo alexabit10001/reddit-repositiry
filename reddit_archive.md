@@ -1856,3 +1856,11 @@
 - [Lace fight but it's the JJK trend](https://www.reddit.com/r/Silksong/comments/1tnha98/lace_fight_but_its_the_jjk_trend/)
 - [Ragebaiting gone wrong (@unclepip)](https://www.reddit.com/r/Silksong/comments/1tnlk0r/ragebaiting_gone_wrong_unclepip/)
 - [Dug trough a landfill near Team Cherry's office and found some potential stuff from Sea Of Sorrow](https://www.reddit.com/r/Silksong/comments/1tnjm5q/dug_trough_a_landfill_near_team_cherrys_office/)
+
+## 2026-05-27
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [You can marry the old hearts!? I mean, I guess they didn't tell us to take it literally.](https://www.reddit.com/r/Silksong/comments/1to5af0/you_can_marry_the_old_hearts_i_mean_i_guess_they/)
+- [HOW COULD TC DO THIS???](https://www.reddit.com/r/Silksong/comments/1tocfuj/how_could_tc_do_this/)
+- [I’m over 60 hours in. I just found out you can bind mid-air.](https://www.reddit.com/r/Silksong/comments/1toqq9c/im_over_60_hours_in_i_just_found_out_you_can_bind/)
