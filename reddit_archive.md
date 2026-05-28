@@ -1864,3 +1864,11 @@
 - [You can marry the old hearts!? I mean, I guess they didn't tell us to take it literally.](https://www.reddit.com/r/Silksong/comments/1to5af0/you_can_marry_the_old_hearts_i_mean_i_guess_they/)
 - [HOW COULD TC DO THIS???](https://www.reddit.com/r/Silksong/comments/1tocfuj/how_could_tc_do_this/)
 - [I’m over 60 hours in. I just found out you can bind mid-air.](https://www.reddit.com/r/Silksong/comments/1toqq9c/im_over_60_hours_in_i_just_found_out_you_can_bind/)
+
+## 2026-05-28
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [I can fix her (art by katatsumu_ktkt)](https://www.reddit.com/r/Silksong/comments/1tp4thc/i_can_fix_her_art_by_katatsumu_ktkt/)
+- [Hornet in dresses (by na__chloridee_)](https://www.reddit.com/r/Silksong/comments/1tpifdr/hornet_in_dresses_by_na_chloridee/)
+- [Hornet likes fluffy things :)](https://www.reddit.com/r/Silksong/comments/1tpjbcz/hornet_likes_fluffy_things/)
