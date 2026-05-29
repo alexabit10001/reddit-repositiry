@@ -1872,3 +1872,11 @@
 - [I can fix her (art by katatsumu_ktkt)](https://www.reddit.com/r/Silksong/comments/1tp4thc/i_can_fix_her_art_by_katatsumu_ktkt/)
 - [Hornet in dresses (by na__chloridee_)](https://www.reddit.com/r/Silksong/comments/1tpifdr/hornet_in_dresses_by_na_chloridee/)
 - [Hornet likes fluffy things :)](https://www.reddit.com/r/Silksong/comments/1tpjbcz/hornet_likes_fluffy_things/)
+
+## 2026-05-29
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [OFFICIAL: Physical Edition for Hollow Knight Silksong realeses on October 16](https://www.reddit.com/r/Silksong/comments/1tqg9y7/official_physical_edition_for_hollow_knight/)
+- [[RELIABLE LEAK] A reliable leaker has claimed that a Silksong Physical incl. manual and map will release on October 16. They have a long and accurate track record, including a correct Silksong price leak.](https://www.reddit.com/r/Silksong/comments/1tqeit5/reliable_leak_a_reliable_leaker_has_claimed_that/)
+- [4 fleas are home.](https://www.reddit.com/r/Silksong/comments/1tqbtz0/4_fleas_are_home/)
