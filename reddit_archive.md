@@ -1880,3 +1880,11 @@
 - [OFFICIAL: Physical Edition for Hollow Knight Silksong realeses on October 16](https://www.reddit.com/r/Silksong/comments/1tqg9y7/official_physical_edition_for_hollow_knight/)
 - [[RELIABLE LEAK] A reliable leaker has claimed that a Silksong Physical incl. manual and map will release on October 16. They have a long and accurate track record, including a correct Silksong price leak.](https://www.reddit.com/r/Silksong/comments/1tqeit5/reliable_leak_a_reliable_leaker_has_claimed_that/)
 - [4 fleas are home.](https://www.reddit.com/r/Silksong/comments/1tqbtz0/4_fleas_are_home/)
+
+## 2026-05-30
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Bug-on-bug violence (by @wi7211000031529)](https://www.reddit.com/r/Silksong/comments/1trk8i4/bugonbug_violence_by_wi7211000031529/)
+- [Something dumb i doodled](https://www.reddit.com/r/Silksong/comments/1tr2gnx/something_dumb_i_doodled/)
+- [I hope we get new abilities in Sea of Sorrow!](https://www.reddit.com/r/Silksong/comments/1tr6as2/i_hope_we_get_new_abilities_in_sea_of_sorrow/)
