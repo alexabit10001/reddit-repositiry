@@ -1888,3 +1888,11 @@
 - [Bug-on-bug violence (by @wi7211000031529)](https://www.reddit.com/r/Silksong/comments/1trk8i4/bugonbug_violence_by_wi7211000031529/)
 - [Something dumb i doodled](https://www.reddit.com/r/Silksong/comments/1tr2gnx/something_dumb_i_doodled/)
 - [I hope we get new abilities in Sea of Sorrow!](https://www.reddit.com/r/Silksong/comments/1tr6as2/i_hope_we_get_new_abilities_in_sea_of_sorrow/)
+
+## 2026-05-31
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Tried drawing Hornet in the style of Cult of The Lamb](https://www.reddit.com/r/Silksong/comments/1tsazz2/tried_drawing_hornet_in_the_style_of_cult_of_the/)
+- [I drew Hornet!, ( Bonus Commander Card! )](https://www.reddit.com/r/Silksong/comments/1tsdd4w/i_drew_hornet_bonus_commander_card/)
+- [Shakra soft pillow](https://www.reddit.com/r/Silksong/comments/1trw5hw/shakra_soft_pillow/)
