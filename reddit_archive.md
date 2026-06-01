@@ -1896,3 +1896,11 @@
 - [Tried drawing Hornet in the style of Cult of The Lamb](https://www.reddit.com/r/Silksong/comments/1tsazz2/tried_drawing_hornet_in_the_style_of_cult_of_the/)
 - [I drew Hornet!, ( Bonus Commander Card! )](https://www.reddit.com/r/Silksong/comments/1tsdd4w/i_drew_hornet_bonus_commander_card/)
 - [Shakra soft pillow](https://www.reddit.com/r/Silksong/comments/1trw5hw/shakra_soft_pillow/)
+
+## 2026-06-01
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Drew my favorite smug little shite as a mermaid](https://www.reddit.com/r/Silksong/comments/1tt7ne6/drew_my_favorite_smug_little_shite_as_a_mermaid/)
+- [[endgame spoiler]](https://www.reddit.com/r/Silksong/comments/1tt50lz/endgame_spoiler/)
+- [Sea of sorrow today](https://www.reddit.com/r/Silksong/comments/1tsskev/sea_of_sorrow_today/)
