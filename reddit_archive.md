@@ -1904,3 +1904,11 @@
 - [Drew my favorite smug little shite as a mermaid](https://www.reddit.com/r/Silksong/comments/1tt7ne6/drew_my_favorite_smug_little_shite_as_a_mermaid/)
 - [[endgame spoiler]](https://www.reddit.com/r/Silksong/comments/1tt50lz/endgame_spoiler/)
 - [Sea of sorrow today](https://www.reddit.com/r/Silksong/comments/1tsskev/sea_of_sorrow_today/)
+
+## 2026-06-02
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Can hornet count as LGBTQ+? Need to know for a fanart](https://www.reddit.com/r/Silksong/comments/1tu489g/can_hornet_count_as_lgbtq_need_to_know_for_a/)
+- [Lace is NOT thick!](https://www.reddit.com/r/Silksong/comments/1tu4lfq/lace_is_not_thick/)
+- [So are we using the pride flea icon ðis year?](https://www.reddit.com/r/Silksong/comments/1tu5pbj/so_are_we_using_the_pride_flea_icon_ðis_year/)
