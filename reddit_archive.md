@@ -1912,3 +1912,11 @@
 - [Can hornet count as LGBTQ+? Need to know for a fanart](https://www.reddit.com/r/Silksong/comments/1tu489g/can_hornet_count_as_lgbtq_need_to_know_for_a/)
 - [Lace is NOT thick!](https://www.reddit.com/r/Silksong/comments/1tu4lfq/lace_is_not_thick/)
 - [So are we using the pride flea icon ðis year?](https://www.reddit.com/r/Silksong/comments/1tu5pbj/so_are_we_using_the_pride_flea_icon_ðis_year/)
+
+## 2026-06-03
+### r/Silksong — hot (day)
+- [ama with r/silksong's silkposters](https://www.reddit.com/r/Silksong/comments/1sk5dod/ama_with_rsilksongs_silkposters/)
+- [LAST SILKSONG PATCH BEFORE SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1rvx0jp/last_silksong_patch_before_sea_of_sorrow/)
+- [Happy Pride to the Enbys of Silksong!!](https://www.reddit.com/r/Silksong/comments/1tvbbg1/happy_pride_to_the_enbys_of_silksong/)
+- [Welcome to class (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1tus2za/welcome_to_class_by_red_krabo/)
+- [Pride Flea? (They are so happy together)](https://www.reddit.com/r/Silksong/comments/1tum7c0/pride_flea_they_are_so_happy_together/)
