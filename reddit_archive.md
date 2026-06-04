@@ -1920,3 +1920,11 @@
 - [Happy Pride to the Enbys of Silksong!!](https://www.reddit.com/r/Silksong/comments/1tvbbg1/happy_pride_to_the_enbys_of_silksong/)
 - [Welcome to class (by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1tus2za/welcome_to_class_by_red_krabo/)
 - [Pride Flea? (They are so happy together)](https://www.reddit.com/r/Silksong/comments/1tum7c0/pride_flea_they_are_so_happy_together/)
+
+## 2026-06-04
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [The 2025 Sea of Sorrow teaser trailer shows up in the Summer Game Fest teaser posted a few minutes ago!](https://www.reddit.com/r/Silksong/comments/1tvr5b1/the_2025_sea_of_sorrow_teaser_trailer_shows_up_in/)
+- [Has anybody notice the sick new Pride Month subreddit icon?](https://www.reddit.com/r/Silksong/comments/1tvtpqr/has_anybody_notice_the_sick_new_pride_month/)
+- [Hornet as 2B from Nier Automata (by @CaptainMolasses)](https://www.reddit.com/r/Silksong/comments/1tvwjj3/hornet_as_2b_from_nier_automata_by_captainmolasses/)
