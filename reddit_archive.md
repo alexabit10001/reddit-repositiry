@@ -1928,3 +1928,11 @@
 - [The 2025 Sea of Sorrow teaser trailer shows up in the Summer Game Fest teaser posted a few minutes ago!](https://www.reddit.com/r/Silksong/comments/1tvr5b1/the_2025_sea_of_sorrow_teaser_trailer_shows_up_in/)
 - [Has anybody notice the sick new Pride Month subreddit icon?](https://www.reddit.com/r/Silksong/comments/1tvtpqr/has_anybody_notice_the_sick_new_pride_month/)
 - [Hornet as 2B from Nier Automata (by @CaptainMolasses)](https://www.reddit.com/r/Silksong/comments/1tvwjj3/hornet_as_2b_from_nier_automata_by_captainmolasses/)
+
+## 2026-06-05
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [I made a life sized flea](https://www.reddit.com/r/Silksong/comments/1twvhi9/i_made_a_life_sized_flea/)
+- [L*** and Hornet wearing cute little uniforms](https://www.reddit.com/r/Silksong/comments/1two081/l_and_hornet_wearing_cute_little_uniforms/)
+- [Silksong roguelike day 4 — Most upvoted commenter will choose the upgrade](https://www.reddit.com/r/Silksong/comments/1twzhbv/silksong_roguelike_day_4_most_upvoted_commenter/)
