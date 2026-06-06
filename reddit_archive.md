@@ -1936,3 +1936,11 @@
 - [I made a life sized flea](https://www.reddit.com/r/Silksong/comments/1twvhi9/i_made_a_life_sized_flea/)
 - [L*** and Hornet wearing cute little uniforms](https://www.reddit.com/r/Silksong/comments/1two081/l_and_hornet_wearing_cute_little_uniforms/)
 - [Silksong roguelike day 4 — Most upvoted commenter will choose the upgrade](https://www.reddit.com/r/Silksong/comments/1twzhbv/silksong_roguelike_day_4_most_upvoted_commenter/)
+
+## 2026-06-06
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [OFFICIAL PHARLOOM BAY SCREENSHOT SHOWN IN TRAILER!!!](https://www.reddit.com/r/Silksong/comments/1txyxvd/official_pharloom_bay_screenshot_shown_in_trailer/)
+- [SILKSONG IS ACTUALLY GONNA BE AT SGF](https://www.reddit.com/r/Silksong/comments/1txr56o/silksong_is_actually_gonna_be_at_sgf/)
+- [NEVER FORGET WHAT GEOFF KEIGHLEY DID TO US](https://www.reddit.com/r/Silksong/comments/1txn6wu/never_forget_what_geoff_keighley_did_to_us/)
