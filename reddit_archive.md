@@ -1944,3 +1944,11 @@
 - [OFFICIAL PHARLOOM BAY SCREENSHOT SHOWN IN TRAILER!!!](https://www.reddit.com/r/Silksong/comments/1txyxvd/official_pharloom_bay_screenshot_shown_in_trailer/)
 - [SILKSONG IS ACTUALLY GONNA BE AT SGF](https://www.reddit.com/r/Silksong/comments/1txr56o/silksong_is_actually_gonna_be_at_sgf/)
 - [NEVER FORGET WHAT GEOFF KEIGHLEY DID TO US](https://www.reddit.com/r/Silksong/comments/1txn6wu/never_forget_what_geoff_keighley_did_to_us/)
+
+## 2026-06-07
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Hornet and Lace nsfw versions](https://www.reddit.com/r/Silksong/comments/1tysco4/hornet_and_lace_nsfw_versions/)
+- [Hornet is a perfect warrior girl](https://www.reddit.com/r/Silksong/comments/1tywt21/hornet_is_a_perfect_warrior_girl/)
+- [Is silksong dead?](https://www.reddit.com/r/Silksong/comments/1tyioz7/is_silksong_dead/)
