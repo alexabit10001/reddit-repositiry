@@ -1952,3 +1952,11 @@
 - [Hornet and Lace nsfw versions](https://www.reddit.com/r/Silksong/comments/1tysco4/hornet_and_lace_nsfw_versions/)
 - [Hornet is a perfect warrior girl](https://www.reddit.com/r/Silksong/comments/1tywt21/hornet_is_a_perfect_warrior_girl/)
 - [Is silksong dead?](https://www.reddit.com/r/Silksong/comments/1tyioz7/is_silksong_dead/)
+
+## 2026-06-08
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [HORNET NUDE EVERYBODY COME SEE](https://www.reddit.com/r/Silksong/comments/1tzjska/hornet_nude_everybody_come_see/)
+- [why would cain say that? is he only 20 years old?](https://www.reddit.com/r/Silksong/comments/1tzalce/why_would_cain_say_that_is_he_only_20_years_old/)
+- [Creation of hornet](https://www.reddit.com/r/Silksong/comments/1tzhrtl/creation_of_hornet/)
