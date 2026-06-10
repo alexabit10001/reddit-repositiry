@@ -1968,3 +1968,11 @@
 - [Silksong & Nine Sols outfit swap (by @RUIZI_06)](https://www.reddit.com/r/Silksong/comments/1u0jhoz/silksong_nine_sols_outfit_swap_by_ruizi_06/)
 - [this game is WOKE SLOP, they are REPLACING THE HOLLOW KNIGHT FOR A GIRL, while in the original game HES A GUY, team cherry has gone WOKE and i hate THEM and i will only get 5 COPIES to show my DISDAIN. seriously disappointed in them](https://www.reddit.com/r/Silksong/comments/1u052nb/this_game_is_woke_slop_they_are_replacing_the/)
 - [Lets rename this ship](https://www.reddit.com/r/Silksong/comments/1u0ljra/lets_rename_this_ship/)
+
+## 2026-06-10
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [TEAM CHERRY UNVEILS UPCOMING DLC FOR SILKSONG TITLED, "DELTARUNE Chapter 5"!!!!](https://www.reddit.com/r/Silksong/comments/1u178o1/team_cherry_unveils_upcoming_dlc_for_silksong/)
+- [Awesome, we wasted our time again](https://www.reddit.com/r/Silksong/comments/1u17bri/awesome_we_wasted_our_time_again/)
+- [You are all acting like Team Cherry would announce the release date of the DLC on a Nintendo Direct and not on a random Tuesday in the middle of August](https://www.reddit.com/r/Silksong/comments/1u1mzsj/you_are_all_acting_like_team_cherry_would/)
