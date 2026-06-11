@@ -1976,3 +1976,11 @@
 - [TEAM CHERRY UNVEILS UPCOMING DLC FOR SILKSONG TITLED, "DELTARUNE Chapter 5"!!!!](https://www.reddit.com/r/Silksong/comments/1u178o1/team_cherry_unveils_upcoming_dlc_for_silksong/)
 - [Awesome, we wasted our time again](https://www.reddit.com/r/Silksong/comments/1u17bri/awesome_we_wasted_our_time_again/)
 - [You are all acting like Team Cherry would announce the release date of the DLC on a Nintendo Direct and not on a random Tuesday in the middle of August](https://www.reddit.com/r/Silksong/comments/1u1mzsj/you_are_all_acting_like_team_cherry_would/)
+
+## 2026-06-11
+### r/Silksong — hot (day)
+- [Flea Sticker Pride Fundraiser - Two Weeks Only!](https://www.reddit.com/r/Silksong/comments/1tw2aak/flea_sticker_pride_fundraiser_two_weeks_only/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Little spider⠀⠀](https://www.reddit.com/r/Silksong/comments/1u2eziw/little_spider/)
+- [I animate lace silksong with audio](https://www.reddit.com/r/Silksong/comments/1u1wmlb/i_animate_lace_silksong_with_audio/)
+- [(NSFW WARNING) Hornet at the start VS later in the game.](https://www.reddit.com/r/Silksong/comments/1u27lz5/nsfw_warning_hornet_at_the_start_vs_later_in_the/)
