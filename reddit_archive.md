@@ -1984,3 +1984,11 @@
 - [Little spider⠀⠀](https://www.reddit.com/r/Silksong/comments/1u2eziw/little_spider/)
 - [I animate lace silksong with audio](https://www.reddit.com/r/Silksong/comments/1u1wmlb/i_animate_lace_silksong_with_audio/)
 - [(NSFW WARNING) Hornet at the start VS later in the game.](https://www.reddit.com/r/Silksong/comments/1u27lz5/nsfw_warning_hornet_at_the_start_vs_later_in_the/)
+
+## 2026-06-12
+### r/Silksong — hot (day)
+- [An Update to the Subreddit Rules (Spam/Harassment)](https://www.reddit.com/r/Silksong/comments/1u3gq3w/an_update_to_the_subreddit_rules_spamharassment/)
+- [A correction to the previous mod post](https://www.reddit.com/r/Silksong/comments/1u3drre/a_correction_to_the_previous_mod_post/)
+- [(Act 3 spoiler) OMG I'M DYIN WHY IS SHE SOOO CUTE](https://www.reddit.com/r/Silksong/comments/1u3c6m8/act_3_spoiler_omg_im_dyin_why_is_she_sooo_cute/)
+- [[mod post] we are banning a thing becuase of a person. you know the one and what we are banning](https://www.reddit.com/r/Silksong/comments/1u373xb/mod_post_we_are_banning_a_thing_becuase_of_a/)
+- [Pride 2025 vs Pride 2026](https://www.reddit.com/r/Silksong/comments/1u3ckn2/pride_2025_vs_pride_2026/)
