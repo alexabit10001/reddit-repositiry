@@ -1992,3 +1992,11 @@
 - [(Act 3 spoiler) OMG I'M DYIN WHY IS SHE SOOO CUTE](https://www.reddit.com/r/Silksong/comments/1u3c6m8/act_3_spoiler_omg_im_dyin_why_is_she_sooo_cute/)
 - [[mod post] we are banning a thing becuase of a person. you know the one and what we are banning](https://www.reddit.com/r/Silksong/comments/1u373xb/mod_post_we_are_banning_a_thing_becuase_of_a/)
 - [Pride 2025 vs Pride 2026](https://www.reddit.com/r/Silksong/comments/1u3ckn2/pride_2025_vs_pride_2026/)
+
+## 2026-06-13
+### r/Silksong — hot (day)
+- [Community Survey: Feedback on r/Silksong and Its Moderation](https://www.reddit.com/r/Silksong/comments/1u41532/community_survey_feedback_on_rsilksong_and_its/)
+- [An Update to the Subreddit Rules (Spam/Harassment)](https://www.reddit.com/r/Silksong/comments/1u3gq3w/an_update_to_the_subreddit_rules_spamharassment/)
+- [r/Silksong update](https://www.reddit.com/r/Silksong/comments/1u488l5/rsilksong_update/)
+- [I'm sorry but who the HELL came up with these stupid no-shipping rules??? HOW AM I SUPPOSED TO GET MY PACKAGE NOW?????????](https://www.reddit.com/r/Silksong/comments/1u42nsn/im_sorry_but_who_the_hell_came_up_with_these/)
+- [NEW ANNOUNCEMENT FROM TC!](https://www.reddit.com/r/Silksong/comments/1u48q9e/new_announcement_from_tc/)
