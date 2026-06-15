@@ -2008,3 +2008,11 @@
 - [Has anyone discovered this hidden area yet?](https://www.reddit.com/r/Silksong/comments/1u4y19v/has_anyone_discovered_this_hidden_area_yet/)
 - [I have seized my son's phone, very disappointed that an under-18 would be on such an inappropriate lesbian child- sexualising Subreddit, whoever this 'Mod fella' is is Definitely right. He is such a trustworthy adult dedicated to protecting children from Manisphere men.](https://www.reddit.com/r/Silksong/comments/1u4nu7x/i_have_seized_my_sons_phone_very_disappointed/)
 - [Lace and hornet at the pride festival](https://www.reddit.com/r/Silksong/comments/1u556k6/lace_and_hornet_at_the_pride_festival/)
+
+## 2026-06-15
+### r/Silksong — hot (day)
+- [Community Survey: Feedback on r/Silksong and Its Moderation](https://www.reddit.com/r/Silksong/comments/1u41532/community_survey_feedback_on_rsilksong_and_its/)
+- [An Update to the Subreddit Rules (Spam/Harassment)](https://www.reddit.com/r/Silksong/comments/1u3gq3w/an_update_to_the_subreddit_rules_spamharassment/)
+- [A French clothing company has sued Team Cherry because Hornet's cloak is too similar to their "brand unique" red skirt](https://www.reddit.com/r/Silksong/comments/1u5j6wq/a_french_clothing_company_has_sued_team_cherry/)
+- [It has been six months/half a year since Sea of Sorrow was announced](https://www.reddit.com/r/Silksong/comments/1u5ysto/it_has_been_six_monthshalf_a_year_since_sea_of/)
+- [Bullriding granny while pregnant, no mask or needle upgrades](https://www.reddit.com/r/Silksong/comments/1u5xt1q/bullriding_granny_while_pregnant_no_mask_or/)
