@@ -2016,3 +2016,11 @@
 - [A French clothing company has sued Team Cherry because Hornet's cloak is too similar to their "brand unique" red skirt](https://www.reddit.com/r/Silksong/comments/1u5j6wq/a_french_clothing_company_has_sued_team_cherry/)
 - [It has been six months/half a year since Sea of Sorrow was announced](https://www.reddit.com/r/Silksong/comments/1u5ysto/it_has_been_six_monthshalf_a_year_since_sea_of/)
 - [Bullriding granny while pregnant, no mask or needle upgrades](https://www.reddit.com/r/Silksong/comments/1u5xt1q/bullriding_granny_while_pregnant_no_mask_or/)
+
+## 2026-06-16
+### r/Silksong — hot (day)
+- [User flair ideas](https://www.reddit.com/r/Silksong/comments/1u6p86o/user_flair_ideas/)
+- [Community Survey: Feedback on r/Silksong and Its Moderation](https://www.reddit.com/r/Silksong/comments/1u41532/community_survey_feedback_on_rsilksong_and_its/)
+- [It's been half a year since Team Cherry announced Sea of Sorrow, so I showed up at their office because of their silence. I will keep you guys updated on how it goes](https://www.reddit.com/r/Silksong/comments/1u6ecm9/its_been_half_a_year_since_team_cherry_announced/)
+- [[UPDATE] I managed to find my way into the office, even took a couple pictures. However, I stumbled into some guy who announced himself as "The Gibson" and chased me out of the office and call security :/](https://www.reddit.com/r/Silksong/comments/1u6xtql/update_i_managed_to_find_my_way_into_the_office/)
+- [Silksong DLC announced to release 2026](https://www.reddit.com/r/Silksong/comments/1u6wiam/silksong_dlc_announced_to_release_2026/)
