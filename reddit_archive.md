@@ -2024,3 +2024,11 @@
 - [It's been half a year since Team Cherry announced Sea of Sorrow, so I showed up at their office because of their silence. I will keep you guys updated on how it goes](https://www.reddit.com/r/Silksong/comments/1u6ecm9/its_been_half_a_year_since_team_cherry_announced/)
 - [[UPDATE] I managed to find my way into the office, even took a couple pictures. However, I stumbled into some guy who announced himself as "The Gibson" and chased me out of the office and call security :/](https://www.reddit.com/r/Silksong/comments/1u6xtql/update_i_managed_to_find_my_way_into_the_office/)
 - [Silksong DLC announced to release 2026](https://www.reddit.com/r/Silksong/comments/1u6wiam/silksong_dlc_announced_to_release_2026/)
+
+## 2026-06-17
+### r/Silksong — hot (day)
+- [Community Survey: Feedback on r/Silksong and Its Moderation](https://www.reddit.com/r/Silksong/comments/1u41532/community_survey_feedback_on_rsilksong_and_its/)
+- [An Update to the Subreddit Rules (Spam/Harassment)](https://www.reddit.com/r/Silksong/comments/1u3gq3w/an_update_to_the_subreddit_rules_spamharassment/)
+- [Every Miku Is Canon (Silksong Edition)](https://www.reddit.com/r/Silksong/comments/1u7t0gv/every_miku_is_canon_silksong_edition/)
+- [ohhhhh FUСK OFF](https://www.reddit.com/r/Silksong/comments/1u7cw0t/ohhhhh_fuсk_off/)
+- [Silksong Hatsune Miku (by @kktwojingle)](https://www.reddit.com/r/Silksong/comments/1u7b80t/silksong_hatsune_miku_by_kktwojingle/)
