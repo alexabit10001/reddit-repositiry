@@ -2032,3 +2032,11 @@
 - [Every Miku Is Canon (Silksong Edition)](https://www.reddit.com/r/Silksong/comments/1u7t0gv/every_miku_is_canon_silksong_edition/)
 - [ohhhhh FUСK OFF](https://www.reddit.com/r/Silksong/comments/1u7cw0t/ohhhhh_fuсk_off/)
 - [Silksong Hatsune Miku (by @kktwojingle)](https://www.reddit.com/r/Silksong/comments/1u7b80t/silksong_hatsune_miku_by_kktwojingle/)
+
+## 2026-06-18
+### r/Silksong — hot (day)
+- [[Follow Up] Community Survey Results & Upcoming Event](https://www.reddit.com/r/Silksong/comments/1u8cfpc/follow_up_community_survey_results_upcoming_event/)
+- [Moderator Announcement: New Flairs, New Staff 💛](https://www.reddit.com/r/Silksong/comments/1u88xfo/moderator_announcement_new_flairs_new_staff/)
+- [[angeban] Always wanting attention huh](https://www.reddit.com/r/Silksong/comments/1u8ilnz/angeban_always_wanting_attention_huh/)
+- [how are Hollow Knight fans STILL wondering if Hornet is void after nearly SEVEN YEARS.](https://www.reddit.com/r/Silksong/comments/1u8dtj2/how_are_hollow_knight_fans_still_wondering_if/)
+- [We are not praising team cherry enough for the way they designed combat and bosses in silksong relative to hollow knight](https://www.reddit.com/r/Silksong/comments/1u8kv77/we_are_not_praising_team_cherry_enough_for_the/)
