@@ -2040,3 +2040,11 @@
 - [[angeban] Always wanting attention huh](https://www.reddit.com/r/Silksong/comments/1u8ilnz/angeban_always_wanting_attention_huh/)
 - [how are Hollow Knight fans STILL wondering if Hornet is void after nearly SEVEN YEARS.](https://www.reddit.com/r/Silksong/comments/1u8dtj2/how_are_hollow_knight_fans_still_wondering_if/)
 - [We are not praising team cherry enough for the way they designed combat and bosses in silksong relative to hollow knight](https://www.reddit.com/r/Silksong/comments/1u8kv77/we_are_not_praising_team_cherry_enough_for_the/)
+
+## 2026-06-19
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [[Follow Up] Community Survey Results & Upcoming Event](https://www.reddit.com/r/Silksong/comments/1u8cfpc/follow_up_community_survey_results_upcoming_event/)
+- [hot take, silksong is a big downgrade visually compared to HK](https://www.reddit.com/r/Silksong/comments/1u9jvso/hot_take_silksong_is_a_big_downgrade_visually/)
+- [[kktwojingle] Hatsune Miku?!](https://www.reddit.com/r/Silksong/comments/1u987hz/kktwojingle_hatsune_miku/)
+- [The AI is in denial](https://www.reddit.com/r/Silksong/comments/1u9iiym/the_ai_is_in_denial/)
