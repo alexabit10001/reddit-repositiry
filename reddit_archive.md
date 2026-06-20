@@ -2048,3 +2048,11 @@
 - [hot take, silksong is a big downgrade visually compared to HK](https://www.reddit.com/r/Silksong/comments/1u9jvso/hot_take_silksong_is_a_big_downgrade_visually/)
 - [[kktwojingle] Hatsune Miku?!](https://www.reddit.com/r/Silksong/comments/1u987hz/kktwojingle_hatsune_miku/)
 - [The AI is in denial](https://www.reddit.com/r/Silksong/comments/1u9iiym/the_ai_is_in_denial/)
+
+## 2026-06-20
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [[Follow Up] Community Survey Results & Upcoming Event](https://www.reddit.com/r/Silksong/comments/1u8cfpc/follow_up_community_survey_results_upcoming_event/)
+- [[angeban] A softer side](https://www.reddit.com/r/Silksong/comments/1ua3exc/angeban_a_softer_side/)
+- [At first, i got really excited about Team Cherry releasing Silksong Mobile but there's SO MUCH ADS and them being integrated into the game is a nice idea on paper but it COMPLETELY BREAKS THE FLOW OF ANY SCENE WHENEVER THEY APPEAR](https://www.reddit.com/r/Silksong/comments/1u9xwpi/at_first_i_got_really_excited_about_team_cherry/)
+- [I refuse to acknowledge this as a crest.](https://www.reddit.com/r/Silksong/comments/1uahj3u/i_refuse_to_acknowledge_this_as_a_crest/)
