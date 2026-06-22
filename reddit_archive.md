@@ -2064,3 +2064,11 @@
 - [Wood carving and pyrography of Hornet(Horness?)](https://www.reddit.com/r/Silksong/comments/1ub23pn/wood_carving_and_pyrography_of_hornethorness/)
 - [Act 4 spoilers (One True Hornet evolution path)](https://www.reddit.com/r/Silksong/comments/1ub841o/act_4_spoilers_one_true_hornet_evolution_path/)
 - [You guys might want to take a look at this...](https://www.reddit.com/r/Silksong/comments/1ub0elm/you_guys_might_want_to_take_a_look_at_this/)
+
+## 2026-06-22
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Get Bugged......... 🐛](https://www.reddit.com/r/Silksong/comments/1ubnbk3/get_bugged/)
+- [For the cooking contest, i have decided to make plasmium :)](https://www.reddit.com/r/Silksong/comments/1ubxtu5/for_the_cooking_contest_i_have_decided_to_make/)
+- [Yo, is the one of those awful runbacks yall keep complaining about?](https://www.reddit.com/r/Silksong/comments/1uc3pnh/yo_is_the_one_of_those_awful_runbacks_yall_keep/)
