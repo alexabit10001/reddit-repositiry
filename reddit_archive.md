@@ -2080,3 +2080,11 @@
 - [Never turn your back to her (by @katatsumu_ktkt_)](https://www.reddit.com/r/Silksong/comments/1ucmp6z/never_turn_your_back_to_her_by_katatsumu_ktkt/)
 - [Why does everyone hate bilewater as if like you couldnt just do the cleanse bilewater wish in act 2](https://www.reddit.com/r/Silksong/comments/1ucwck0/why_does_everyone_hate_bilewater_as_if_like_you/)
 - [[that-lace-fan] She'll be all mine!!](https://www.reddit.com/r/Silksong/comments/1ucyyms/thatlacefan_shell_be_all_mine/)
+
+## 2026-06-24
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Nom Nom (by @kirakira_0456)](https://www.reddit.com/r/Silksong/comments/1udifku/nom_nom_by_kirakira_0456/)
+- ["Similar bugs would gnaw away at unguarded food supplies in my homeland. As a child, I would hunt them, eager to make use of myself and test my skills." by its-jooby](https://www.reddit.com/r/Silksong/comments/1udg3xg/similar_bugs_would_gnaw_away_at_unguarded_food/)
+- [even team cherry is celebrating this momentous event](https://www.reddit.com/r/Silksong/comments/1udhhk5/even_team_cherry_is_celebrating_this_momentous/)
