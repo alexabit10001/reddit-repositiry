@@ -2088,3 +2088,11 @@
 - [Nom Nom (by @kirakira_0456)](https://www.reddit.com/r/Silksong/comments/1udifku/nom_nom_by_kirakira_0456/)
 - ["Similar bugs would gnaw away at unguarded food supplies in my homeland. As a child, I would hunt them, eager to make use of myself and test my skills." by its-jooby](https://www.reddit.com/r/Silksong/comments/1udg3xg/similar_bugs_would_gnaw_away_at_unguarded_food/)
 - [even team cherry is celebrating this momentous event](https://www.reddit.com/r/Silksong/comments/1udhhk5/even_team_cherry_is_celebrating_this_momentous/)
+
+## 2026-06-25
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Fun fact: If you activate the DLC before starting Act 3, then your save file becomes plasmified instead of voided!](https://www.reddit.com/r/Silksong/comments/1ueghph/fun_fact_if_you_activate_the_dlc_before_starting/)
+- [The official HK discord server has finally done it…](https://www.reddit.com/r/Silksong/comments/1uenbth/the_official_hk_discord_server_has_finally_done_it/)
+- [Hornet being a drunkhead](https://www.reddit.com/r/Silksong/comments/1uea9zu/hornet_being_a_drunkhead/)
