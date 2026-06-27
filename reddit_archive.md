@@ -2104,3 +2104,11 @@
 - [worst time to buy silksong, dont do the summer sale](https://www.reddit.com/r/Silksong/comments/1ufh2u4/worst_time_to_buy_silksong_dont_do_the_summer_sale/)
 - [Jesus Christ we've only banished them elsewhere to terrorize others](https://www.reddit.com/r/Silksong/comments/1uf4eej/jesus_christ_weve_only_banished_them_elsewhere_to/)
 - [Ranking bosses on how much I'd wanna smash them](https://www.reddit.com/r/Silksong/comments/1ufjuyh/ranking_bosses_on_how_much_id_wanna_smash_them/)
+
+## 2026-06-27
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [team cherry what the hell is this](https://www.reddit.com/r/Silksong/comments/1ug9gfp/team_cherry_what_the_hell_is_this/)
+- [Finnaly put adult money to good use](https://www.reddit.com/r/Silksong/comments/1ug5632/finnaly_put_adult_money_to_good_use/)
+- [I LOVE THIS ABILITY](https://www.reddit.com/r/Silksong/comments/1ugl3t6/i_love_this_ability/)
