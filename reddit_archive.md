@@ -2112,3 +2112,11 @@
 - [team cherry what the hell is this](https://www.reddit.com/r/Silksong/comments/1ug9gfp/team_cherry_what_the_hell_is_this/)
 - [Finnaly put adult money to good use](https://www.reddit.com/r/Silksong/comments/1ug5632/finnaly_put_adult_money_to_good_use/)
 - [I LOVE THIS ABILITY](https://www.reddit.com/r/Silksong/comments/1ugl3t6/i_love_this_ability/)
+
+## 2026-06-28
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [The Chapter 5 Secret Boss keeps kicking my ass, any tips?](https://www.reddit.com/r/Silksong/comments/1uhejfz/the_chapter_5_secret_boss_keeps_kicking_my_ass/)
+- [Sawtooth Hornet (by @Isp4rq)](https://www.reddit.com/r/Silksong/comments/1uh4pj8/sawtooth_hornet_by_isp4rq/)
+- [Hornetttttttttttttttttttt!!!!](https://www.reddit.com/r/Silksong/comments/1uguop9/hornetttttttttttttttttttt/)
