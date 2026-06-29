@@ -2120,3 +2120,11 @@
 - [The Chapter 5 Secret Boss keeps kicking my ass, any tips?](https://www.reddit.com/r/Silksong/comments/1uhejfz/the_chapter_5_secret_boss_keeps_kicking_my_ass/)
 - [Sawtooth Hornet (by @Isp4rq)](https://www.reddit.com/r/Silksong/comments/1uh4pj8/sawtooth_hornet_by_isp4rq/)
 - [Hornetttttttttttttttttttt!!!!](https://www.reddit.com/r/Silksong/comments/1uguop9/hornetttttttttttttttttttt/)
+
+## 2026-06-29
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Antsune Magnet Redraw](https://www.reddit.com/r/Silksong/comments/1ui4orf/antsune_magnet_redraw/)
+- [She throw him to the sun to fight](https://www.reddit.com/r/Silksong/comments/1uiezea/she_throw_him_to_the_sun_to_fight/)
+- [I couldn't find this image so I made it myself](https://www.reddit.com/r/Silksong/comments/1uic3hi/i_couldnt_find_this_image_so_i_made_it_myself/)
