@@ -2136,3 +2136,11 @@
 - [Angel of Hallownest](https://www.reddit.com/r/Silksong/comments/1uj0brv/angel_of_hallownest/)
 - [Can We Please Lock In With This](https://www.reddit.com/r/Silksong/comments/1uirmf6/can_we_please_lock_in_with_this/)
 - [Silksong roguelike part 19](https://www.reddit.com/r/Silksong/comments/1uj4sy2/silksong_roguelike_part_19/)
+
+## 2026-07-01
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Can't even retire in peace](https://www.reddit.com/r/Silksong/comments/1ujylir/cant_even_retire_in_peace/)
+- [I don't want to do another Great Taste of Pharloom quest!](https://www.reddit.com/r/Silksong/comments/1ujt0c9/i_dont_want_to_do_another_great_taste_of_pharloom/)
+- [WHY SOOOOO CUTEEEEE😭😭😭❤️❤️❤️](https://www.reddit.com/r/Silksong/comments/1ujldk2/why_sooooo_cuteeeee/)
