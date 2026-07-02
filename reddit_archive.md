@@ -2144,3 +2144,11 @@
 - [Can't even retire in peace](https://www.reddit.com/r/Silksong/comments/1ujylir/cant_even_retire_in_peace/)
 - [I don't want to do another Great Taste of Pharloom quest!](https://www.reddit.com/r/Silksong/comments/1ujt0c9/i_dont_want_to_do_another_great_taste_of_pharloom/)
 - [WHY SOOOOO CUTEEEEE😭😭😭❤️❤️❤️](https://www.reddit.com/r/Silksong/comments/1ujldk2/why_sooooo_cuteeeee/)
+
+## 2026-07-02
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Shakra Jack-pose](https://www.reddit.com/r/Silksong/comments/1ukx3ol/shakra_jackpose/)
+- [SILKSOUL! Amazing New Mod Revealed](https://www.reddit.com/r/Silksong/comments/1ukv0j6/silksoul_amazing_new_mod_revealed/)
+- [The apple doesn't fall far from the tree (by @redzombie)](https://www.reddit.com/r/Silksong/comments/1ukv5sf/the_apple_doesnt_fall_far_from_the_tree_by/)
