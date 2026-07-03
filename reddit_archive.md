@@ -2152,3 +2152,11 @@
 - [Shakra Jack-pose](https://www.reddit.com/r/Silksong/comments/1ukx3ol/shakra_jackpose/)
 - [SILKSOUL! Amazing New Mod Revealed](https://www.reddit.com/r/Silksong/comments/1ukv0j6/silksoul_amazing_new_mod_revealed/)
 - [The apple doesn't fall far from the tree (by @redzombie)](https://www.reddit.com/r/Silksong/comments/1ukv5sf/the_apple_doesnt_fall_far_from_the_tree_by/)
+
+## 2026-07-03
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [protagonist's name revealed via steam points shop](https://www.reddit.com/r/Silksong/comments/1ulkp27/protagonists_name_revealed_via_steam_points_shop/)
+- [I owe team cherry an apology](https://www.reddit.com/r/Silksong/comments/1uloj30/i_owe_team_cherry_an_apology/)
+- [Concept to improve the whole northeast segment of silksong](https://www.reddit.com/r/Silksong/comments/1ulwamu/concept_to_improve_the_whole_northeast_segment_of/)
