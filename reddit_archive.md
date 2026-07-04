@@ -2160,3 +2160,11 @@
 - [protagonist's name revealed via steam points shop](https://www.reddit.com/r/Silksong/comments/1ulkp27/protagonists_name_revealed_via_steam_points_shop/)
 - [I owe team cherry an apology](https://www.reddit.com/r/Silksong/comments/1uloj30/i_owe_team_cherry_an_apology/)
 - [Concept to improve the whole northeast segment of silksong](https://www.reddit.com/r/Silksong/comments/1ulwamu/concept_to_improve_the_whole_northeast_segment_of/)
+
+## 2026-07-04
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Is there any route where Sherma survives?](https://www.reddit.com/r/Silksong/comments/1umlbl1/is_there_any_route_where_sherma_survives/)
+- [THEY SHADOW DROPPED IT](https://www.reddit.com/r/Silksong/comments/1umfs46/they_shadow_dropped_it/)
+- [Cute Hornet Collage (art by @nullthecloud)](https://www.reddit.com/r/Silksong/comments/1umd0ce/cute_hornet_collage_art_by_nullthecloud/)
