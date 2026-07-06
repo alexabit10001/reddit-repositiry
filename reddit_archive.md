@@ -2176,3 +2176,11 @@
 - [now that chapter 5 is out what do we think will be chapter 6 7?](https://www.reddit.com/r/Silksong/comments/1un6hau/now_that_chapter_5_is_out_what_do_we_think_will/)
 - [Japanese Mantis Wife (Art by ProfessorNoodless)](https://www.reddit.com/r/Silksong/comments/1unmdln/japanese_mantis_wife_art_by_professornoodless/)
 - [I hate what Team Cherry did to Silksong](https://www.reddit.com/r/Silksong/comments/1uniq0o/i_hate_what_team_cherry_did_to_silksong/)
+
+## 2026-07-06
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [60% of the fanart in this sub](https://www.reddit.com/r/Silksong/comments/1uo6wou/60_of_the_fanart_in_this_sub/)
+- [Daddy issues (by @catarium)](https://www.reddit.com/r/Silksong/comments/1uobfgq/daddy_issues_by_catarium/)
+- [How to handle your Hornet (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1uofcnh/how_to_handle_your_hornet_art_by_adouukoi/)
