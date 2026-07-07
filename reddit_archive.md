@@ -2184,3 +2184,11 @@
 - [60% of the fanart in this sub](https://www.reddit.com/r/Silksong/comments/1uo6wou/60_of_the_fanart_in_this_sub/)
 - [Daddy issues (by @catarium)](https://www.reddit.com/r/Silksong/comments/1uobfgq/daddy_issues_by_catarium/)
 - [How to handle your Hornet (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1uofcnh/how_to_handle_your_hornet_art_by_adouukoi/)
+
+## 2026-07-07
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [My uncle works at team cherry and leaked the Sea of Sorrow DLC and here it is](https://www.reddit.com/r/Silksong/comments/1up08xn/my_uncle_works_at_team_cherry_and_leaked_the_sea/)
+- [hot take: silksong is a huge downgrade visually compared to hollow knight](https://www.reddit.com/r/Silksong/comments/1upd3lk/hot_take_silksong_is_a_huge_downgrade_visually/)
+- [Official Silksong SGDQ shirt! Art by me.](https://www.reddit.com/r/Silksong/comments/1upbc6y/official_silksong_sgdq_shirt_art_by_me/)
