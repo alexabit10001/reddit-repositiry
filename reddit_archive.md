@@ -2192,3 +2192,11 @@
 - [My uncle works at team cherry and leaked the Sea of Sorrow DLC and here it is](https://www.reddit.com/r/Silksong/comments/1up08xn/my_uncle_works_at_team_cherry_and_leaked_the_sea/)
 - [hot take: silksong is a huge downgrade visually compared to hollow knight](https://www.reddit.com/r/Silksong/comments/1upd3lk/hot_take_silksong_is_a_huge_downgrade_visually/)
 - [Official Silksong SGDQ shirt! Art by me.](https://www.reddit.com/r/Silksong/comments/1upbc6y/official_silksong_sgdq_shirt_art_by_me/)
+
+## 2026-07-08
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [HORNET WAIT DON'T MAKE ANOTHER FOUNTAIN](https://www.reddit.com/r/Silksong/comments/1uq061b/hornet_wait_dont_make_another_fountain/)
+- [Jump higher, shorty! (art by me)](https://www.reddit.com/r/Silksong/comments/1upy403/jump_higher_shorty_art_by_me/)
+- [Hornet’s reminiscence (by @marti-lizzard)](https://www.reddit.com/r/Silksong/comments/1upz81z/hornets_reminiscence_by_martilizzard/)
