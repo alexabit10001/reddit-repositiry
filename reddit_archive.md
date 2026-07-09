@@ -2200,3 +2200,11 @@
 - [HORNET WAIT DON'T MAKE ANOTHER FOUNTAIN](https://www.reddit.com/r/Silksong/comments/1uq061b/hornet_wait_dont_make_another_fountain/)
 - [Jump higher, shorty! (art by me)](https://www.reddit.com/r/Silksong/comments/1upy403/jump_higher_shorty_art_by_me/)
 - [Hornet’s reminiscence (by @marti-lizzard)](https://www.reddit.com/r/Silksong/comments/1upz81z/hornets_reminiscence_by_martilizzard/)
+
+## 2026-07-09
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [About Age (by @hirota967985)](https://www.reddit.com/r/Silksong/comments/1uqtdqw/about_age_by_hirota967985/)
+- [How come no one's talking abt these??](https://www.reddit.com/r/Silksong/comments/1ur7gtr/how_come_no_ones_talking_abt_these/)
+- [Why the f*ck is nobody talking about 3d Silksong here?!](https://www.reddit.com/r/Silksong/comments/1uqumsc/why_the_fck_is_nobody_talking_about_3d_silksong/)
