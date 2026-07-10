@@ -2208,3 +2208,11 @@
 - [About Age (by @hirota967985)](https://www.reddit.com/r/Silksong/comments/1uqtdqw/about_age_by_hirota967985/)
 - [How come no one's talking abt these??](https://www.reddit.com/r/Silksong/comments/1ur7gtr/how_come_no_ones_talking_abt_these/)
 - [Why the f*ck is nobody talking about 3d Silksong here?!](https://www.reddit.com/r/Silksong/comments/1uqumsc/why_the_fck_is_nobody_talking_about_3d_silksong/)
+
+## 2026-07-10
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [These wedding cutscenes are just pure beauty!!](https://www.reddit.com/r/Silksong/comments/1urybuw/these_wedding_cutscenes_are_just_pure_beauty/)
+- [Yi and Hornet species swap (Nine Sols x Silksong art by @p__0p)](https://www.reddit.com/r/Silksong/comments/1uryhjx/yi_and_hornet_species_swap_nine_sols_x_silksong/)
+- [“I can quit anytime” (by @page-white)](https://www.reddit.com/r/Silksong/comments/1us3usr/i_can_quit_anytime_by_pagewhite/)
