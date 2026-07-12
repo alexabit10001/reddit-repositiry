@@ -2224,3 +2224,11 @@
 - [when i head that we were going "across" the Sea Of Sorrow this is not what i pictured](https://www.reddit.com/r/Silksong/comments/1usmzkn/when_i_head_that_we_were_going_across_the_sea_of/)
 - [OFFICIAL SILKEN HEART NEWS. THE DRAFT IS FINISHED. OFFICIAL PAGE COUNT. Production time calculated to be 10-14 months. This makes this the largest Hollow Knight comic ever made. Thank you to all of those that have been following. (Further details below.)](https://www.reddit.com/r/Silksong/comments/1usx9ep/official_silken_heart_news_the_draft_is_finished/)
 - [SEA OF SORROW JUST DROPPED NO WAY](https://www.reddit.com/r/Silksong/comments/1ustxn8/sea_of_sorrow_just_dropped_no_way/)
+
+## 2026-07-12
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [She wants to be like mommy! (art by me)](https://www.reddit.com/r/Silksong/comments/1utpqq9/she_wants_to_be_like_mommy_art_by_me/)
+- [I STAND WITH PHARLOOM! IT WAS PROMISED TO THE WEAVERS THREE THOUSAND YEARS AGO! FUСK THE IMMA- I MEAN PILGRIMS!](https://www.reddit.com/r/Silksong/comments/1utkk8d/i_stand_with_pharloom_it_was_promised_to_the/)
+- [Ari Gibson spotted in São Paulo watching Norway vs England](https://www.reddit.com/r/Silksong/comments/1utx1kd/ari_gibson_spotted_in_são_paulo_watching_norway/)
