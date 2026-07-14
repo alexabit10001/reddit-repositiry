@@ -2240,3 +2240,11 @@
 - [[silkenbride] child of three queens](https://www.reddit.com/r/Silksong/comments/1uul87k/silkenbride_child_of_three_queens/)
 - [Lacenet Cuddles (by @angeban93)](https://www.reddit.com/r/Silksong/comments/1uuh7b9/lacenet_cuddles_by_angeban93/)
 - [Comic: Memento Mayhem](https://www.reddit.com/r/Silksong/comments/1uuwjcd/comic_memento_mayhem/)
+
+## 2026-07-14
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [Fun and wholesome fact: Since 2021, Team Cherry has been donating 1 MILLION AUS dollars to charity and have never publicly said anything about it. (Via ACNC.gov.au)](https://www.reddit.com/r/Silksong/comments/1uvk920/fun_and_wholesome_fact_since_2021_team_cherry_has/)
+- [Beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uviv0f/beating_the_tutorial_every_day_until_i_cant/)
+- [when hornet decided to introduce democratic elections, she didn’t think anyone would run against her. Especially not someone called "Count Binface"](https://www.reddit.com/r/Silksong/comments/1uvbcon/when_hornet_decided_to_introduce_democratic/)
