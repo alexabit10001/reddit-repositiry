@@ -2248,3 +2248,11 @@
 - [Fun and wholesome fact: Since 2021, Team Cherry has been donating 1 MILLION AUS dollars to charity and have never publicly said anything about it. (Via ACNC.gov.au)](https://www.reddit.com/r/Silksong/comments/1uvk920/fun_and_wholesome_fact_since_2021_team_cherry_has/)
 - [Beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uviv0f/beating_the_tutorial_every_day_until_i_cant/)
 - [when hornet decided to introduce democratic elections, she didn’t think anyone would run against her. Especially not someone called "Count Binface"](https://www.reddit.com/r/Silksong/comments/1uvbcon/when_hornet_decided_to_introduce_democratic/)
+
+## 2026-07-15
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [Day 2 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uwghdd/day_2_of_beating_the_tutorial_every_day_until_i/)
+- [New armor for Hornet (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1uwc0ju/new_armor_for_hornet_by_adouukoi/)
+- [Who would win: Void Given Focus or Weaver Queen?](https://www.reddit.com/r/Silksong/comments/1uwjtw5/who_would_win_void_given_focus_or_weaver_queen/)
