@@ -2256,3 +2256,11 @@
 - [Day 2 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uwghdd/day_2_of_beating_the_tutorial_every_day_until_i/)
 - [New armor for Hornet (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1uwc0ju/new_armor_for_hornet_by_adouukoi/)
 - [Who would win: Void Given Focus or Weaver Queen?](https://www.reddit.com/r/Silksong/comments/1uwjtw5/who_would_win_void_given_focus_or_weaver_queen/)
+
+## 2026-07-16
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [PTSD (Animation by GlassOfOcean)](https://www.reddit.com/r/Silksong/comments/1ux6fcc/ptsd_animation_by_glassofocean/)
+- [Day 3 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uxeviy/day_3_of_beating_the_tutorial_every_day_until_i/)
+- [100% accurate depiction of Hornet and Lace's first meeting (art by @ayalace_)](https://www.reddit.com/r/Silksong/comments/1ux6sj8/100_accurate_depiction_of_hornet_and_laces_first/)
