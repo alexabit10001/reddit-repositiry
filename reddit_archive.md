@@ -2264,3 +2264,11 @@
 - [PTSD (Animation by GlassOfOcean)](https://www.reddit.com/r/Silksong/comments/1ux6fcc/ptsd_animation_by_glassofocean/)
 - [Day 3 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1uxeviy/day_3_of_beating_the_tutorial_every_day_until_i/)
 - [100% accurate depiction of Hornet and Lace's first meeting (art by @ayalace_)](https://www.reddit.com/r/Silksong/comments/1ux6sj8/100_accurate_depiction_of_hornet_and_laces_first/)
+
+## 2026-07-17
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [BREAKING: TEAM CHERRY CO-FOUNDER AND DEVELOPER WILLIAM PELLEN IS ONLINE ON STEAM THIS SECOND BUT NOT IN A GAME; HE LIKELY IS UPLOADING SEA OF SORROW CONTENT TO STEAM'S BACKEND, MAYBE NOT FINALIZED CONTENT BUT PROGRESS IS PROGRESS. HE WAS OFFLINE LAST I CHECKED YESTERDAY.](https://www.reddit.com/r/Silksong/comments/1uykd47/breaking_team_cherry_cofounder_and_developer/)
+- ["You are a sad strange little woman" (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1uy3e5z/you_are_a_sad_strange_little_woman_art_by_red/)
+- ["cut them with your savage adult heart"](https://www.reddit.com/r/Silksong/comments/1uy6w0c/cut_them_with_your_savage_adult_heart/)
