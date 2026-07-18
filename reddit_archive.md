@@ -2272,3 +2272,11 @@
 - [BREAKING: TEAM CHERRY CO-FOUNDER AND DEVELOPER WILLIAM PELLEN IS ONLINE ON STEAM THIS SECOND BUT NOT IN A GAME; HE LIKELY IS UPLOADING SEA OF SORROW CONTENT TO STEAM'S BACKEND, MAYBE NOT FINALIZED CONTENT BUT PROGRESS IS PROGRESS. HE WAS OFFLINE LAST I CHECKED YESTERDAY.](https://www.reddit.com/r/Silksong/comments/1uykd47/breaking_team_cherry_cofounder_and_developer/)
 - ["You are a sad strange little woman" (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1uy3e5z/you_are_a_sad_strange_little_woman_art_by_red/)
 - ["cut them with your savage adult heart"](https://www.reddit.com/r/Silksong/comments/1uy6w0c/cut_them_with_your_savage_adult_heart/)
+
+## 2026-07-18
+### r/Silksong — hot (day)
+- [[Rules Update] An Update Regarding Political Posts](https://www.reddit.com/r/Silksong/comments/1us9r8u/rules_update_an_update_regarding_political_posts/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [Hornet giving life advice (by @tophatisaperson)](https://www.reddit.com/r/Silksong/comments/1uz5zh3/hornet_giving_life_advice_by_tophatisaperson/)
+- [Upvote to scare the mods](https://www.reddit.com/r/Silksong/comments/1uyw8rp/upvote_to_scare_the_mods/)
+- [Why are you like this?](https://www.reddit.com/r/Silksong/comments/1uzasom/why_are_you_like_this/)
