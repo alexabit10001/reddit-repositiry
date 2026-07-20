@@ -2288,3 +2288,11 @@
 - [Maybe he tried to be a decent father? (art by me)](https://www.reddit.com/r/Silksong/comments/1uzz78d/maybe_he_tried_to_be_a_decent_father_art_by_me/)
 - [Day 5 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v02yye/day_5_of_beating_the_tutorial_every_day_until_i/)
 - [They laced his McDonald’s order](https://www.reddit.com/r/Silksong/comments/1v0aekv/they_laced_his_mcdonalds_order/)
+
+## 2026-07-20
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Day 6 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v0y4yd/day_6_of_beating_the_tutorial_every_day_until_i/)
+- [MOD POST: u/AI_660 IS NOW BANNED](https://www.reddit.com/r/Silksong/comments/1v10sd3/mod_post_uai_660_is_now_banned/)
+- ["Your bra strap is showing" trend... but Hornet absolutely flatness](https://www.reddit.com/r/Silksong/comments/1v0okx3/your_bra_strap_is_showing_trend_but_hornet/)
