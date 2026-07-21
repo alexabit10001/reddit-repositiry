@@ -2296,3 +2296,11 @@
 - [Day 6 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v0y4yd/day_6_of_beating_the_tutorial_every_day_until_i/)
 - [MOD POST: u/AI_660 IS NOW BANNED](https://www.reddit.com/r/Silksong/comments/1v10sd3/mod_post_uai_660_is_now_banned/)
 - ["Your bra strap is showing" trend... but Hornet absolutely flatness](https://www.reddit.com/r/Silksong/comments/1v0okx3/your_bra_strap_is_showing_trend_but_hornet/)
+
+## 2026-07-21
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Day 7 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v1tsek/day_7_of_beating_the_tutorial_every_day_until_i/)
+- [I don’t blame her (by @xelesion)](https://www.reddit.com/r/Silksong/comments/1v1ty8c/i_dont_blame_her_by_xelesion/)
+- [📢 [Announcement] From now on only serious topics about the game are allowed to be posted](https://www.reddit.com/r/Silksong/comments/1v1ssbv/announcement_from_now_on_only_serious_topics/)
