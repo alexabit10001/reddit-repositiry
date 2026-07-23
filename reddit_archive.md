@@ -2312,3 +2312,11 @@
 - [Jasmine Vine Team Cooties incident](https://www.reddit.com/r/Silksong/comments/1v2p23f/jasmine_vine_team_cooties_incident/)
 - [OFFICIAL UPDATE: Jack Vine is now Jasmine Vine!](https://www.reddit.com/r/Silksong/comments/1v2kot8/official_update_jack_vine_is_now_jasmine_vine/)
 - [Too soon? Anyways, congrats.](https://www.reddit.com/r/Silksong/comments/1v2okqy/too_soon_anyways_congrats/)
+
+## 2026-07-23
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [BREAKING, JUST IN: Team Cherry has UPDATED the credits for Silksong; first manual update since April! This may mean that SEA OF SORROW IS IMMINENT AND THAT THEY'RE UPDATING IT FOR NEW CREDITS!](https://www.reddit.com/r/Silksong/comments/1v3wn1c/breaking_just_in_team_cherry_has_updated_the/)
+- [lmao jasmine's gotten like 2000 followers in the last day](https://www.reddit.com/r/Silksong/comments/1v3q352/lmao_jasmines_gotten_like_2000_followers_in_the/)
+- [[minart-was-taken] You look like you've seen a ghost](https://www.reddit.com/r/Silksong/comments/1v3hi2p/minartwastaken_you_look_like_youve_seen_a_ghost/)
