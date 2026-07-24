@@ -2320,3 +2320,11 @@
 - [BREAKING, JUST IN: Team Cherry has UPDATED the credits for Silksong; first manual update since April! This may mean that SEA OF SORROW IS IMMINENT AND THAT THEY'RE UPDATING IT FOR NEW CREDITS!](https://www.reddit.com/r/Silksong/comments/1v3wn1c/breaking_just_in_team_cherry_has_updated_the/)
 - [lmao jasmine's gotten like 2000 followers in the last day](https://www.reddit.com/r/Silksong/comments/1v3q352/lmao_jasmines_gotten_like_2000_followers_in_the/)
 - [[minart-was-taken] You look like you've seen a ghost](https://www.reddit.com/r/Silksong/comments/1v3hi2p/minartwastaken_you_look_like_youve_seen_a_ghost/)
+
+## 2026-07-24
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Huge congratulations to Jasmine!](https://www.reddit.com/r/Silksong/comments/1v4pun5/huge_congratulations_to_jasmine/)
+- [Conterfeit rosary [OC]](https://www.reddit.com/r/Silksong/comments/1v4i6k4/conterfeit_rosary_oc/)
+- [After 3 hrs of dying THIS is how it ends](https://www.reddit.com/r/Silksong/comments/1v4nw5c/after_3_hrs_of_dying_this_is_how_it_ends/)
