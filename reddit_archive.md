@@ -2328,3 +2328,11 @@
 - [Huge congratulations to Jasmine!](https://www.reddit.com/r/Silksong/comments/1v4pun5/huge_congratulations_to_jasmine/)
 - [Conterfeit rosary [OC]](https://www.reddit.com/r/Silksong/comments/1v4i6k4/conterfeit_rosary_oc/)
 - [After 3 hrs of dying THIS is how it ends](https://www.reddit.com/r/Silksong/comments/1v4nw5c/after_3_hrs_of_dying_this_is_how_it_ends/)
+
+## 2026-07-25
+### r/Silksong — hot (day)
+- [So lead programmer of team cherry came out as a poSHAWnka shipper...](https://www.reddit.com/r/Silksong/comments/1v5k68e/so_lead_programmer_of_team_cherry_came_out_as_a/)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [false alarm guys, the updating to the credits was nothing to do with sea of sorrow they just removed jasmine's dead name.](https://www.reddit.com/r/Silksong/comments/1v5ac3w/false_alarm_guys_the_updating_to_the_credits_was/)
+- [Day 10 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v5jvbn/day_10_of_beating_the_tutorial_every_day_until_i/)
+- ["Are they not?" (Lacenet art by @Himeragi136)](https://www.reddit.com/r/Silksong/comments/1v5bfh5/are_they_not_lacenet_art_by_himeragi136/)
