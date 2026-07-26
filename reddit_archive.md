@@ -2336,3 +2336,11 @@
 - [false alarm guys, the updating to the credits was nothing to do with sea of sorrow they just removed jasmine's dead name.](https://www.reddit.com/r/Silksong/comments/1v5ac3w/false_alarm_guys_the_updating_to_the_credits_was/)
 - [Day 10 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v5jvbn/day_10_of_beating_the_tutorial_every_day_until_i/)
 - ["Are they not?" (Lacenet art by @Himeragi136)](https://www.reddit.com/r/Silksong/comments/1v5bfh5/are_they_not_lacenet_art_by_himeragi136/)
+
+## 2026-07-26
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Day 11 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v6gqrm/day_11_of_beating_the_tutorial_every_day_until_i/)
+- [Toby fox hacked silksong because he was bored](https://www.reddit.com/r/Silksong/comments/1v6gion/toby_fox_hacked_silksong_because_he_was_bored/)
+- [How did she get her name (art by me)](https://www.reddit.com/r/Silksong/comments/1v6dt8c/how_did_she_get_her_name_art_by_me/)
