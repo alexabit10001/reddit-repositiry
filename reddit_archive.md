@@ -2344,3 +2344,11 @@
 - [Day 11 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v6gqrm/day_11_of_beating_the_tutorial_every_day_until_i/)
 - [Toby fox hacked silksong because he was bored](https://www.reddit.com/r/Silksong/comments/1v6gion/toby_fox_hacked_silksong_because_he_was_bored/)
 - [How did she get her name (art by me)](https://www.reddit.com/r/Silksong/comments/1v6dt8c/how_did_she_get_her_name_art_by_me/)
+
+## 2026-07-27
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Day 12 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v7asoi/day_12_of_beating_the_tutorial_every_day_until_i/)
+- [How is my girlfriend’s cosplay?](https://www.reddit.com/r/Silksong/comments/1v6wkw8/how_is_my_girlfriends_cosplay/)
+- [Help. Caretaker not showing up before fighting GMS. He says this weird stuff over and over.](https://www.reddit.com/r/Silksong/comments/1v7fv3q/help_caretaker_not_showing_up_before_fighting_gms/)
