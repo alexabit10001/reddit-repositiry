@@ -2352,3 +2352,11 @@
 - [Day 12 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v7asoi/day_12_of_beating_the_tutorial_every_day_until_i/)
 - [How is my girlfriend’s cosplay?](https://www.reddit.com/r/Silksong/comments/1v6wkw8/how_is_my_girlfriends_cosplay/)
 - [Help. Caretaker not showing up before fighting GMS. He says this weird stuff over and over.](https://www.reddit.com/r/Silksong/comments/1v7fv3q/help_caretaker_not_showing_up_before_fighting_gms/)
+
+## 2026-07-28
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Horent gotta get the best seat there](https://www.reddit.com/r/Silksong/comments/1v89ic6/horent_gotta_get_the_best_seat_there/)
+- [Day 13 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v88tkc/day_13_of_beating_the_tutorial_every_day_until_i/)
+- [Guess I just wait for Sea of Sorrow now](https://www.reddit.com/r/Silksong/comments/1v81ztd/guess_i_just_wait_for_sea_of_sorrow_now/)
