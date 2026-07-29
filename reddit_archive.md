@@ -2360,3 +2360,11 @@
 - [Horent gotta get the best seat there](https://www.reddit.com/r/Silksong/comments/1v89ic6/horent_gotta_get_the_best_seat_there/)
 - [Day 13 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1v88tkc/day_13_of_beating_the_tutorial_every_day_until_i/)
 - [Guess I just wait for Sea of Sorrow now](https://www.reddit.com/r/Silksong/comments/1v81ztd/guess_i_just_wait_for_sea_of_sorrow_now/)
+
+## 2026-07-29
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Drew Hornet in my style. How did I do?](https://www.reddit.com/r/Silksong/comments/1v964l2/drew_hornet_in_my_style_how_did_i_do/)
+- [Pack it up yall Silksong is WOKE now](https://www.reddit.com/r/Silksong/comments/1v8y62w/pack_it_up_yall_silksong_is_woke_now/)
+- [Hornet and Lace doing the Chainsaw Man movie pool scene (by @Corviny_)](https://www.reddit.com/r/Silksong/comments/1v8xced/hornet_and_lace_doing_the_chainsaw_man_movie_pool/)
