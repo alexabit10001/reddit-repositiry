@@ -2368,3 +2368,11 @@
 - [Drew Hornet in my style. How did I do?](https://www.reddit.com/r/Silksong/comments/1v964l2/drew_hornet_in_my_style_how_did_i_do/)
 - [Pack it up yall Silksong is WOKE now](https://www.reddit.com/r/Silksong/comments/1v8y62w/pack_it_up_yall_silksong_is_woke_now/)
 - [Hornet and Lace doing the Chainsaw Man movie pool scene (by @Corviny_)](https://www.reddit.com/r/Silksong/comments/1v8xced/hornet_and_lace_doing_the_chainsaw_man_movie_pool/)
+
+## 2026-07-30
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [People are complaining about literally anything now huh? Games were framed like this since the dawn of time!](https://www.reddit.com/r/Silksong/comments/1v9zo8r/people_are_complaining_about_literally_anything/)
+- [Hornet omfg stop writing this shit down I'm trying to learn lore](https://www.reddit.com/r/Silksong/comments/1va14f9/hornet_omfg_stop_writing_this_shit_down_im_trying/)
+- [Day 14 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1va4pkm/day_14_of_beating_the_tutorial_every_day_until_i/)
