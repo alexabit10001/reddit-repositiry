@@ -2376,3 +2376,11 @@
 - [People are complaining about literally anything now huh? Games were framed like this since the dawn of time!](https://www.reddit.com/r/Silksong/comments/1v9zo8r/people_are_complaining_about_literally_anything/)
 - [Hornet omfg stop writing this shit down I'm trying to learn lore](https://www.reddit.com/r/Silksong/comments/1va14f9/hornet_omfg_stop_writing_this_shit_down_im_trying/)
 - [Day 14 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1va4pkm/day_14_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-07-31
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Well, Somebody's Jealous (Art by @FaithGerrzd)](https://www.reddit.com/r/Silksong/comments/1vb15wf/well_somebodys_jealous_art_by_faithgerrzd/)
+- [Phantom of the citadel (Art by Frozensoba)](https://www.reddit.com/r/Silksong/comments/1vawqvk/phantom_of_the_citadel_art_by_frozensoba/)
+- [Has anyone ever beaten the final boss with this crest?](https://www.reddit.com/r/Silksong/comments/1vazps9/has_anyone_ever_beaten_the_final_boss_with_this/)
