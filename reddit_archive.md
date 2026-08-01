@@ -2384,3 +2384,11 @@
 - [Well, Somebody's Jealous (Art by @FaithGerrzd)](https://www.reddit.com/r/Silksong/comments/1vb15wf/well_somebodys_jealous_art_by_faithgerrzd/)
 - [Phantom of the citadel (Art by Frozensoba)](https://www.reddit.com/r/Silksong/comments/1vawqvk/phantom_of_the_citadel_art_by_frozensoba/)
 - [Has anyone ever beaten the final boss with this crest?](https://www.reddit.com/r/Silksong/comments/1vazps9/has_anyone_ever_beaten_the_final_boss_with_this/)
+
+## 2026-08-01
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef: Create your own dish - Silk, Spice, and Sacrifice](https://www.reddit.com/r/Silksong/comments/1ubr6l0/event_hollow_chef_create_your_own_dish_silk_spice/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Sea of sorrow releases on august 21st 2026](https://www.reddit.com/r/Silksong/comments/1vbxuq4/sea_of_sorrow_releases_on_august_21st_2026/)
+- [r/ASilksong has gone completely and utterly insane](https://www.reddit.com/r/Silksong/comments/1vc06io/rasilksong_has_gone_completely_and_utterly_insane/)
+- [r/ASilksong has been privated](https://www.reddit.com/r/Silksong/comments/1vc886n/rasilksong_has_been_privated/)
