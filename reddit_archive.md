@@ -2392,3 +2392,11 @@
 - [Sea of sorrow releases on august 21st 2026](https://www.reddit.com/r/Silksong/comments/1vbxuq4/sea_of_sorrow_releases_on_august_21st_2026/)
 - [r/ASilksong has gone completely and utterly insane](https://www.reddit.com/r/Silksong/comments/1vc06io/rasilksong_has_gone_completely_and_utterly_insane/)
 - [r/ASilksong has been privated](https://www.reddit.com/r/Silksong/comments/1vc886n/rasilksong_has_been_privated/)
+
+## 2026-08-02
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Cuddling (by crispinkiss)](https://www.reddit.com/r/Silksong/comments/1vcv4xj/cuddling_by_crispinkiss/)
+- [Team Cherry updated their website!](https://www.reddit.com/r/Silksong/comments/1vcsxg5/team_cherry_updated_their_website/)
+- [i am retiring from team cherry](https://www.reddit.com/r/Silksong/comments/1vd2pbb/i_am_retiring_from_team_cherry/)
