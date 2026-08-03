@@ -2400,3 +2400,11 @@
 - [Cuddling (by crispinkiss)](https://www.reddit.com/r/Silksong/comments/1vcv4xj/cuddling_by_crispinkiss/)
 - [Team Cherry updated their website!](https://www.reddit.com/r/Silksong/comments/1vcsxg5/team_cherry_updated_their_website/)
 - [i am retiring from team cherry](https://www.reddit.com/r/Silksong/comments/1vd2pbb/i_am_retiring_from_team_cherry/)
+
+## 2026-08-03
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef Winners & Next Event](https://www.reddit.com/r/Silksong/comments/1vdeho4/event_hollow_chef_winners_next_event/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [My Lace cosplay is already completed!](https://www.reddit.com/r/Silksong/comments/1vdl9bm/my_lace_cosplay_is_already_completed/)
+- [Hornet's siblings visiting Pharloom (by nutt-croissant)](https://www.reddit.com/r/Silksong/comments/1vds97i/hornets_siblings_visiting_pharloom_by/)
+- [This is on Trobbio’s Wiki page](https://www.reddit.com/r/Silksong/comments/1vdooua/this_is_on_trobbios_wiki_page/)
