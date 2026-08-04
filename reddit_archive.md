@@ -2408,3 +2408,11 @@
 - [My Lace cosplay is already completed!](https://www.reddit.com/r/Silksong/comments/1vdl9bm/my_lace_cosplay_is_already_completed/)
 - [Hornet's siblings visiting Pharloom (by nutt-croissant)](https://www.reddit.com/r/Silksong/comments/1vds97i/hornets_siblings_visiting_pharloom_by/)
 - [This is on Trobbio’s Wiki page](https://www.reddit.com/r/Silksong/comments/1vdooua/this_is_on_trobbios_wiki_page/)
+
+## 2026-08-04
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef Winners & Next Event](https://www.reddit.com/r/Silksong/comments/1vdeho4/event_hollow_chef_winners_next_event/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Day 18 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1veluo9/day_18_of_beating_the_tutorial_every_day_until_i/)
+- [Cloak-sharing (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1veexmf/cloaksharing_by_adouukoi/)
+- [I had a idea and it needed to be expressed (TW:suggestive posing)](https://www.reddit.com/r/Silksong/comments/1vetrlp/i_had_a_idea_and_it_needed_to_be_expressed/)
