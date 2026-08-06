@@ -2424,3 +2424,11 @@
 - [Team Cherry reveals information about the upcoming DLC](https://www.reddit.com/r/Silksong/comments/1vfn0e9/team_cherry_reveals_information_about_the/)
 - [Mount Fay (OC illustration)](https://www.reddit.com/r/Silksong/comments/1vfhaxz/mount_fay_oc_illustration/)
 - [Indubitably True Story](https://www.reddit.com/r/Silksong/comments/1vfo1sl/indubitably_true_story/)
+
+## 2026-08-06
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef Winners & Next Event](https://www.reddit.com/r/Silksong/comments/1vdeho4/event_hollow_chef_winners_next_event/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Crazy how it's really been 7 months since the sea of sorrow teaser. Time really flies](https://www.reddit.com/r/Silksong/comments/1vglzpn/crazy_how_its_really_been_7_months_since_the_sea/)
+- [TEAM CHERRY JUST POST THIS](https://www.reddit.com/r/Silksong/comments/1vg35dr/team_cherry_just_post_this/)
+- [Day 20 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vgffpj/day_20_of_beating_the_tutorial_every_day_until_i/)
