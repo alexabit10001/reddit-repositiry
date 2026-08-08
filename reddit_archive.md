@@ -2440,3 +2440,11 @@
 - [The Trophy Room (by @theanonymousmystery)](https://www.reddit.com/r/Silksong/comments/1vhe5qt/the_trophy_room_by_theanonymousmystery/)
 - [Teasing their wife](https://www.reddit.com/r/Silksong/comments/1vhej7t/teasing_their_wife/)
 - [Toby Fox ADMITS to RIPPING OFF Hollow Knight in newsletter](https://www.reddit.com/r/Silksong/comments/1vha87e/toby_fox_admits_to_ripping_off_hollow_knight_in/)
+
+## 2026-08-08
+### r/Silksong — hot (day)
+- [[Event] Hollow Chef Winners & Next Event](https://www.reddit.com/r/Silksong/comments/1vdeho4/event_hollow_chef_winners_next_event/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Grand Mother Silk, but she has a job at the office (by ayalace_)](https://www.reddit.com/r/Silksong/comments/1vi3wy9/grand_mother_silk_but_she_has_a_job_at_the_office/)
+- [I think they went overboard with the duration of the Red Memory](https://www.reddit.com/r/Silksong/comments/1viczvl/i_think_they_went_overboard_with_the_duration_of/)
+- [Day 21 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vi8f6q/day_21_of_beating_the_tutorial_every_day_until_i/)
