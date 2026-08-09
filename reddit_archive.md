@@ -2448,3 +2448,11 @@
 - [Grand Mother Silk, but she has a job at the office (by ayalace_)](https://www.reddit.com/r/Silksong/comments/1vi3wy9/grand_mother_silk_but_she_has_a_job_at_the_office/)
 - [I think they went overboard with the duration of the Red Memory](https://www.reddit.com/r/Silksong/comments/1viczvl/i_think_they_went_overboard_with_the_duration_of/)
 - [Day 21 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vi8f6q/day_21_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-08-09
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [pattern recognition](https://www.reddit.com/r/Silksong/comments/1vj6gpz/pattern_recognition/)
+- [Hornet Animorph (art by @katatsumu_ktkt_)](https://www.reddit.com/r/Silksong/comments/1vivzjf/hornet_animorph_art_by_katatsumu_ktkt/)
+- [[KINDA NEWS]: Team Cherry's "Fearless Fox" trademark recently passed Canadian examination and appeared in Trademark Journal from THREE DAYS ago, August 5, 2026.](https://www.reddit.com/r/Silksong/comments/1vj7yex/kinda_news_team_cherrys_fearless_fox_trademark/)
