@@ -2456,3 +2456,11 @@
 - [pattern recognition](https://www.reddit.com/r/Silksong/comments/1vj6gpz/pattern_recognition/)
 - [Hornet Animorph (art by @katatsumu_ktkt_)](https://www.reddit.com/r/Silksong/comments/1vivzjf/hornet_animorph_art_by_katatsumu_ktkt/)
 - [[KINDA NEWS]: Team Cherry's "Fearless Fox" trademark recently passed Canadian examination and appeared in Trademark Journal from THREE DAYS ago, August 5, 2026.](https://www.reddit.com/r/Silksong/comments/1vj7yex/kinda_news_team_cherrys_fearless_fox_trademark/)
+
+## 2026-08-10
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Cute outfit for Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1vk14wm/cute_outfit_for_lace_by_17hornet77987/)
+- [its been 6 months](https://www.reddit.com/r/Silksong/comments/1vjzt6d/its_been_6_months/)
+- [Day 22 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vjx0n3/day_22_of_beating_the_tutorial_every_day_until_i/)
