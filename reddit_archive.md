@@ -2464,3 +2464,11 @@
 - [Cute outfit for Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1vk14wm/cute_outfit_for_lace_by_17hornet77987/)
 - [its been 6 months](https://www.reddit.com/r/Silksong/comments/1vjzt6d/its_been_6_months/)
 - [Day 22 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vjx0n3/day_22_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-08-11
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- ["AI please, stop trying to justify this and just admit you are not having fun anymore"](https://www.reddit.com/r/Silksong/comments/1vkm80u/ai_please_stop_trying_to_justify_this_and_just/)
+- [Apparently you can break the scarecrow above Halfway Home](https://www.reddit.com/r/Silksong/comments/1vkn2bp/apparently_you_can_break_the_scarecrow_above/)
+- [Day 23 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vks4l7/day_23_of_beating_the_tutorial_every_day_until_i/)
