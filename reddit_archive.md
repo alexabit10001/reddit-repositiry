@@ -2472,3 +2472,11 @@
 - ["AI please, stop trying to justify this and just admit you are not having fun anymore"](https://www.reddit.com/r/Silksong/comments/1vkm80u/ai_please_stop_trying_to_justify_this_and_just/)
 - [Apparently you can break the scarecrow above Halfway Home](https://www.reddit.com/r/Silksong/comments/1vkn2bp/apparently_you_can_break_the_scarecrow_above/)
 - [Day 23 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vks4l7/day_23_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-08-12
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Honestly I for one won't be buying TC+ anytime soon](https://www.reddit.com/r/Silksong/comments/1vlt4tl/honestly_i_for_one_wont_be_buying_tc_anytime_soon/)
+- [Whoever's playing the pale king, i gotta tell you, he's lucky.](https://www.reddit.com/r/Silksong/comments/1vltrsl/whoevers_playing_the_pale_king_i_gotta_tell_you/)
+- [Smol Hornet (Animation by MHBali)](https://www.reddit.com/r/Silksong/comments/1vlhcxb/smol_hornet_animation_by_mhbali/)
