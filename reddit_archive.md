@@ -2480,3 +2480,11 @@
 - [Honestly I for one won't be buying TC+ anytime soon](https://www.reddit.com/r/Silksong/comments/1vlt4tl/honestly_i_for_one_wont_be_buying_tc_anytime_soon/)
 - [Whoever's playing the pale king, i gotta tell you, he's lucky.](https://www.reddit.com/r/Silksong/comments/1vltrsl/whoevers_playing_the_pale_king_i_gotta_tell_you/)
 - [Smol Hornet (Animation by MHBali)](https://www.reddit.com/r/Silksong/comments/1vlhcxb/smol_hornet_animation_by_mhbali/)
+
+## 2026-08-13
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Team Cherry Is terrible at having a consistent artstyle](https://www.reddit.com/r/Silksong/comments/1vmkq4n/team_cherry_is_terrible_at_having_a_consistent/)
+- [Weaver Queen Hornet (by Of_lights02)](https://www.reddit.com/r/Silksong/comments/1vmkt5b/weaver_queen_hornet_by_of_lights02/)
+- [Hollow Knight: Silksong has been permanently discounted by $1 on all storefronts. (Was $19.99)](https://www.reddit.com/r/Silksong/comments/1vmnhn6/hollow_knight_silksong_has_been_permanently/)
