@@ -2488,3 +2488,11 @@
 - [Team Cherry Is terrible at having a consistent artstyle](https://www.reddit.com/r/Silksong/comments/1vmkq4n/team_cherry_is_terrible_at_having_a_consistent/)
 - [Weaver Queen Hornet (by Of_lights02)](https://www.reddit.com/r/Silksong/comments/1vmkt5b/weaver_queen_hornet_by_of_lights02/)
 - [Hollow Knight: Silksong has been permanently discounted by $1 on all storefronts. (Was $19.99)](https://www.reddit.com/r/Silksong/comments/1vmnhn6/hollow_knight_silksong_has_been_permanently/)
+
+## 2026-08-14
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Where do I get clawline](https://www.reddit.com/r/Silksong/comments/1vnkmgv/where_do_i_get_clawline/)
+- [She’s got deep pockets](https://www.reddit.com/r/Silksong/comments/1vnppzg/shes_got_deep_pockets/)
+- [GUYS E1331 JUST POSTED](https://www.reddit.com/r/Silksong/comments/1vn7cp8/guys_e1331_just_posted/)
