@@ -2496,3 +2496,11 @@
 - [Where do I get clawline](https://www.reddit.com/r/Silksong/comments/1vnkmgv/where_do_i_get_clawline/)
 - [She’s got deep pockets](https://www.reddit.com/r/Silksong/comments/1vnppzg/shes_got_deep_pockets/)
 - [GUYS E1331 JUST POSTED](https://www.reddit.com/r/Silksong/comments/1vn7cp8/guys_e1331_just_posted/)
+
+## 2026-08-15
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Skarr's are one of the weirdest species, like they have Shakra/Trader-level intelligent beings & then they also have this:](https://www.reddit.com/r/Silksong/comments/1volgn0/skarrs_are_one_of_the_weirdest_species_like_they/)
+- [Chef Lugoli, roasted (art by me)](https://www.reddit.com/r/Silksong/comments/1vocvin/chef_lugoli_roasted_art_by_me/)
+- [Day 26 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1voeh48/day_26_of_beating_the_tutorial_every_day_until_i/)
