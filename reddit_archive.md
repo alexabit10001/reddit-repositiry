@@ -2504,3 +2504,11 @@
 - [Skarr's are one of the weirdest species, like they have Shakra/Trader-level intelligent beings & then they also have this:](https://www.reddit.com/r/Silksong/comments/1volgn0/skarrs_are_one_of_the_weirdest_species_like_they/)
 - [Chef Lugoli, roasted (art by me)](https://www.reddit.com/r/Silksong/comments/1vocvin/chef_lugoli_roasted_art_by_me/)
 - [Day 26 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1voeh48/day_26_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-08-16
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [SEA OF SORROW: THE HUNT IS ON!!!](https://www.reddit.com/r/Silksong/comments/1vpc5dt/sea_of_sorrow_the_hunt_is_on/)
+- [Official Matthew Griffin response to the recent usage of Silksong OST by the current US administration: "Team Cherry has been made aware of an official government account using music by Christopher Larkin to promote war. We are investigati[ng] options and cannot comment further at this time."](https://www.reddit.com/r/Silksong/comments/1vp1htr/official_matthew_griffin_response_to_the_recent/)
+- [I feel like replacing rosary beads with bank notes is unnecessary, but it's nice that TC lets us decide on the design. I like these ones the most](https://www.reddit.com/r/Silksong/comments/1vp91r8/i_feel_like_replacing_rosary_beads_with_bank/)
