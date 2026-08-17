@@ -2512,3 +2512,11 @@
 - [SEA OF SORROW: THE HUNT IS ON!!!](https://www.reddit.com/r/Silksong/comments/1vpc5dt/sea_of_sorrow_the_hunt_is_on/)
 - [Official Matthew Griffin response to the recent usage of Silksong OST by the current US administration: "Team Cherry has been made aware of an official government account using music by Christopher Larkin to promote war. We are investigati[ng] options and cannot comment further at this time."](https://www.reddit.com/r/Silksong/comments/1vp1htr/official_matthew_griffin_response_to_the_recent/)
 - [I feel like replacing rosary beads with bank notes is unnecessary, but it's nice that TC lets us decide on the design. I like these ones the most](https://www.reddit.com/r/Silksong/comments/1vp91r8/i_feel_like_replacing_rosary_beads_with_bank/)
+
+## 2026-08-17
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Hmmm… (art by Raisin_)](https://www.reddit.com/r/Silksong/comments/1vpxt6k/hmmm_art_by_raisin/)
+- [lmao the r/dndmemes mods removed my silkpost becuase they fell for it and thought it was a real screenshot thats hilarious](https://www.reddit.com/r/Silksong/comments/1vqanlw/lmao_the_rdndmemes_mods_removed_my_silkpost/)
+- [Is it just me, or does anyone else agree that the Conductor Crest is a tad bit overpowered?](https://www.reddit.com/r/Silksong/comments/1vq3kqx/is_it_just_me_or_does_anyone_else_agree_that_the/)
