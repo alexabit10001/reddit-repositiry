@@ -2520,3 +2520,11 @@
 - [Hmmm… (art by Raisin_)](https://www.reddit.com/r/Silksong/comments/1vpxt6k/hmmm_art_by_raisin/)
 - [lmao the r/dndmemes mods removed my silkpost becuase they fell for it and thought it was a real screenshot thats hilarious](https://www.reddit.com/r/Silksong/comments/1vqanlw/lmao_the_rdndmemes_mods_removed_my_silkpost/)
 - [Is it just me, or does anyone else agree that the Conductor Crest is a tad bit overpowered?](https://www.reddit.com/r/Silksong/comments/1vq3kqx/is_it_just_me_or_does_anyone_else_agree_that_the/)
+
+## 2026-08-18
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Hear me out (Art by Milanovicmihael)](https://www.reddit.com/r/Silksong/comments/1vqth34/hear_me_out_art_by_milanovicmihael/)
+- [I just found this on Kickstarter yesterday. Do you think it's worth backing?](https://www.reddit.com/r/Silksong/comments/1vr5w38/i_just_found_this_on_kickstarter_yesterday_do_you/)
+- [HLEP! How do you do this challenge? F*@k this Loddie fella!](https://www.reddit.com/r/Silksong/comments/1vqzp9m/hlep_how_do_you_do_this_challenge_fk_this_loddie/)
