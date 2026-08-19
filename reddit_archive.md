@@ -2528,3 +2528,11 @@
 - [Hear me out (Art by Milanovicmihael)](https://www.reddit.com/r/Silksong/comments/1vqth34/hear_me_out_art_by_milanovicmihael/)
 - [I just found this on Kickstarter yesterday. Do you think it's worth backing?](https://www.reddit.com/r/Silksong/comments/1vr5w38/i_just_found_this_on_kickstarter_yesterday_do_you/)
 - [HLEP! How do you do this challenge? F*@k this Loddie fella!](https://www.reddit.com/r/Silksong/comments/1vqzp9m/hlep_how_do_you_do_this_challenge_fk_this_loddie/)
+
+## 2026-08-19
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [I still cant beleive how much our little community has grown over the past few years! Really brings tears to my eyes🥹](https://www.reddit.com/r/Silksong/comments/1vs1fkt/i_still_cant_beleive_how_much_our_little/)
+- [Last year my best friend quit his full time job to chase his dream and make a fully fledged Silksong fan game. Today he just released a trailer and it looks beyond amazing](https://www.reddit.com/r/Silksong/comments/1vrl46h/last_year_my_best_friend_quit_his_full_time_job/)
+- [Hornet if she lost the final fight to Grand Mother Silk (by hallownestbox)](https://www.reddit.com/r/Silksong/comments/1vs62tj/hornet_if_she_lost_the_final_fight_to_grand/)
