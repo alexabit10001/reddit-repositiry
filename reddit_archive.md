@@ -2536,3 +2536,11 @@
 - [I still cant beleive how much our little community has grown over the past few years! Really brings tears to my eyes🥹](https://www.reddit.com/r/Silksong/comments/1vs1fkt/i_still_cant_beleive_how_much_our_little/)
 - [Last year my best friend quit his full time job to chase his dream and make a fully fledged Silksong fan game. Today he just released a trailer and it looks beyond amazing](https://www.reddit.com/r/Silksong/comments/1vrl46h/last_year_my_best_friend_quit_his_full_time_job/)
 - [Hornet if she lost the final fight to Grand Mother Silk (by hallownestbox)](https://www.reddit.com/r/Silksong/comments/1vs62tj/hornet_if_she_lost_the_final_fight_to_grand/)
+
+## 2026-08-20
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Best boss of Act 4 imo](https://www.reddit.com/r/Silksong/comments/1vspw20/best_boss_of_act_4_imo/)
+- [How much rosaries will I get from this?](https://www.reddit.com/r/Silksong/comments/1vt0hfj/how_much_rosaries_will_i_get_from_this/)
+- [i wore my latex hornet cosplay to a local convention!](https://www.reddit.com/r/Silksong/comments/1vsvw2x/i_wore_my_latex_hornet_cosplay_to_a_local/)
