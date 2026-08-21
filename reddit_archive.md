@@ -2544,3 +2544,11 @@
 - [Best boss of Act 4 imo](https://www.reddit.com/r/Silksong/comments/1vspw20/best_boss_of_act_4_imo/)
 - [How much rosaries will I get from this?](https://www.reddit.com/r/Silksong/comments/1vt0hfj/how_much_rosaries_will_i_get_from_this/)
 - [i wore my latex hornet cosplay to a local convention!](https://www.reddit.com/r/Silksong/comments/1vsvw2x/i_wore_my_latex_hornet_cosplay_to_a_local/)
+
+## 2026-08-21
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Why are there so many multi-bosses](https://www.reddit.com/r/Silksong/comments/1vtx921/why_are_there_so_many_multibosses/)
+- [the pain never ends](https://www.reddit.com/r/Silksong/comments/1vtlgpr/the_pain_never_ends/)
+- [Lacenet Fits (by @Mawiheartt)](https://www.reddit.com/r/Silksong/comments/1vtxb2f/lacenet_fits_by_mawiheartt/)
