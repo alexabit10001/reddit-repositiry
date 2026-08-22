@@ -2552,3 +2552,11 @@
 - [Why are there so many multi-bosses](https://www.reddit.com/r/Silksong/comments/1vtx921/why_are_there_so_many_multibosses/)
 - [the pain never ends](https://www.reddit.com/r/Silksong/comments/1vtlgpr/the_pain_never_ends/)
 - [Lacenet Fits (by @Mawiheartt)](https://www.reddit.com/r/Silksong/comments/1vtxb2f/lacenet_fits_by_mawiheartt/)
+
+## 2026-08-22
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Hollow Knight: Silksong | Sunken Belltower - Reveal Trailer](https://www.reddit.com/r/Silksong/comments/1vulwgx/hollow_knight_silksong_sunken_belltower_reveal/)
+- [Mount Fay would be so much easier if hornet overcame her anxiety...](https://www.reddit.com/r/Silksong/comments/1vud9yn/mount_fay_would_be_so_much_easier_if_hornet/)
+- [Jason Schreier announces new Bloomberg interview with Team Cherry on how they approach DLC amid anniversary.](https://www.reddit.com/r/Silksong/comments/1vuopsu/jason_schreier_announces_new_bloomberg_interview/)
