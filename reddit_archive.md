@@ -2568,3 +2568,11 @@
 - [Can't believe I finally reached the Sandsea Wastes on my first Steel Soul run!](https://www.reddit.com/r/Silksong/comments/1vvo293/cant_believe_i_finally_reached_the_sandsea_wastes/)
 - [Hornet (art by me)](https://www.reddit.com/r/Silksong/comments/1vvikga/hornet_art_by_me/)
 - [Boom Shakra-Laka (art by @Zixzs321)](https://www.reddit.com/r/Silksong/comments/1vve0gh/boom_shakralaka_art_by_zixzs321/)
+
+## 2026-08-24
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [This game very much becomes a joke once you know where everything is](https://www.reddit.com/r/Silksong/comments/1vw7czp/this_game_very_much_becomes_a_joke_once_you_know/)
+- [This trick helped me FINALLY beat Widow’s phase 2](https://www.reddit.com/r/Silksong/comments/1vw50yu/this_trick_helped_me_finally_beat_widows_phase_2/)
+- [Day 32 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vweuz3/day_32_of_beating_the_tutorial_every_day_until_i/)
