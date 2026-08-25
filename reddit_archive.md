@@ -2576,3 +2576,11 @@
 - [This game very much becomes a joke once you know where everything is](https://www.reddit.com/r/Silksong/comments/1vw7czp/this_game_very_much_becomes_a_joke_once_you_know/)
 - [This trick helped me FINALLY beat Widow’s phase 2](https://www.reddit.com/r/Silksong/comments/1vw50yu/this_trick_helped_me_finally_beat_widows_phase_2/)
 - [Day 32 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1vweuz3/day_32_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-08-25
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [How do I beat the Cogwork Abomination?](https://www.reddit.com/r/Silksong/comments/1vxghbf/how_do_i_beat_the_cogwork_abomination/)
+- [wokenet [filler]](https://www.reddit.com/r/Silksong/comments/1vxbk0s/wokenet_filler/)
+- [Seas of Sorrows has grown to big, will be released as full game](https://www.reddit.com/r/Silksong/comments/1vwz2gl/seas_of_sorrows_has_grown_to_big_will_be_released/)
