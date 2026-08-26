@@ -2584,3 +2584,11 @@
 - [How do I beat the Cogwork Abomination?](https://www.reddit.com/r/Silksong/comments/1vxghbf/how_do_i_beat_the_cogwork_abomination/)
 - [wokenet [filler]](https://www.reddit.com/r/Silksong/comments/1vxbk0s/wokenet_filler/)
 - [Seas of Sorrows has grown to big, will be released as full game](https://www.reddit.com/r/Silksong/comments/1vwz2gl/seas_of_sorrows_has_grown_to_big_will_be_released/)
+
+## 2026-08-26
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [JUST ANNOUNCED AT GAMESCOM: SEA OF SORROW SET TO RELEASE SEPTEMBER 21st](https://www.reddit.com/r/Silksong/comments/1vybp68/just_announced_at_gamescom_sea_of_sorrow_set_to/)
+- [Smh Shakra.....](https://www.reddit.com/r/Silksong/comments/1vybnua/smh_shakra/)
+- [Impulsive thoughts (by @c-rowlesdraws)](https://www.reddit.com/r/Silksong/comments/1vyerfe/impulsive_thoughts_by_crowlesdraws/)
