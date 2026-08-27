@@ -2592,3 +2592,11 @@
 - [JUST ANNOUNCED AT GAMESCOM: SEA OF SORROW SET TO RELEASE SEPTEMBER 21st](https://www.reddit.com/r/Silksong/comments/1vybp68/just_announced_at_gamescom_sea_of_sorrow_set_to/)
 - [Smh Shakra.....](https://www.reddit.com/r/Silksong/comments/1vybnua/smh_shakra/)
 - [Impulsive thoughts (by @c-rowlesdraws)](https://www.reddit.com/r/Silksong/comments/1vyerfe/impulsive_thoughts_by_crowlesdraws/)
+
+## 2026-08-27
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [I don't care if it's a slur or just some gibberish. It has a place in my heart](https://www.reddit.com/r/Silksong/comments/1vz7k7w/i_dont_care_if_its_a_slur_or_just_some_gibberish/)
+- [The woke mind virus is turning insects GAY 😡😡😡💀💀💢💢](https://www.reddit.com/r/Silksong/comments/1vz4b3f/the_woke_mind_virus_is_turning_insects_gay/)
+- [What does he even do?](https://www.reddit.com/r/Silksong/comments/1vze746/what_does_he_even_do/)
