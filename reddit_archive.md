@@ -2600,3 +2600,11 @@
 - [I don't care if it's a slur or just some gibberish. It has a place in my heart](https://www.reddit.com/r/Silksong/comments/1vz7k7w/i_dont_care_if_its_a_slur_or_just_some_gibberish/)
 - [The woke mind virus is turning insects GAY 😡😡😡💀💀💢💢](https://www.reddit.com/r/Silksong/comments/1vz4b3f/the_woke_mind_virus_is_turning_insects_gay/)
 - [What does he even do?](https://www.reddit.com/r/Silksong/comments/1vze746/what_does_he_even_do/)
+
+## 2026-08-28
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Two little cartographers (by @dieselchar)](https://www.reddit.com/r/Silksong/comments/1w00mt0/two_little_cartographers_by_dieselchar/)
+- [Shakra deserves a spa after all that](https://www.reddit.com/r/Silksong/comments/1w01m2p/shakra_deserves_a_spa_after_all_that/)
+- [Our Devotion Holds It Together](https://www.reddit.com/r/Silksong/comments/1w09r6h/our_devotion_holds_it_together/)
