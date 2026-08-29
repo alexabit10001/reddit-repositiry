@@ -2608,3 +2608,11 @@
 - [Two little cartographers (by @dieselchar)](https://www.reddit.com/r/Silksong/comments/1w00mt0/two_little_cartographers_by_dieselchar/)
 - [Shakra deserves a spa after all that](https://www.reddit.com/r/Silksong/comments/1w01m2p/shakra_deserves_a_spa_after_all_that/)
 - [Our Devotion Holds It Together](https://www.reddit.com/r/Silksong/comments/1w09r6h/our_devotion_holds_it_together/)
+
+## 2026-08-29
+### r/Silksong — hot (day)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [New icon](https://www.reddit.com/r/Silksong/comments/1tvyeuu/new_icon/)
+- [Miscommunication (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1w16phd/miscommunication_art_by_adouukoi/)
+- [people were talking about it like it's the next path of pain](https://www.reddit.com/r/Silksong/comments/1w0yopq/people_were_talking_about_it_like_its_the_next/)
+- [short people "problems"](https://www.reddit.com/r/Silksong/comments/1w0udo0/short_people_problems/)
