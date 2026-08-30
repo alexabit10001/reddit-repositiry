@@ -2616,3 +2616,11 @@
 - [Miscommunication (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1w16phd/miscommunication_art_by_adouukoi/)
 - [people were talking about it like it's the next path of pain](https://www.reddit.com/r/Silksong/comments/1w0yopq/people_were_talking_about_it_like_its_the_next/)
 - [short people "problems"](https://www.reddit.com/r/Silksong/comments/1w0udo0/short_people_problems/)
+
+## 2026-08-30
+### r/Silksong — hot (day)
+- [New Sub Icon Poll](https://www.reddit.com/r/Silksong/comments/1w1xupg/new_sub_icon_poll/)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Subreddit Icon Proposition](https://www.reddit.com/r/Silksong/comments/1w216ly/subreddit_icon_proposition/)
+- [My Hornet Cosplay for gamescom 2026](https://www.reddit.com/r/Silksong/comments/1w1smbp/my_hornet_cosplay_for_gamescom_2026/)
+- [Comparins the siblings CVs.](https://www.reddit.com/r/Silksong/comments/1w1l6nl/comparins_the_siblings_cvs/)
