@@ -2632,3 +2632,11 @@
 - [New sub icon proposition :D](https://www.reddit.com/r/Silksong/comments/1w2oy5b/new_sub_icon_proposition_d/)
 - [r/Silksong lore](https://www.reddit.com/r/Silksong/comments/1w2xdru/rsilksong_lore/)
 - [(concept) if the icon HAS to be bug yuri, can it at least be good?](https://www.reddit.com/r/Silksong/comments/1w2jxpe/concept_if_the_icon_has_to_be_bug_yuri_can_it_at/)
+
+## 2026-09-01
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [These low quality Silkposts are really getting out of hand](https://www.reddit.com/r/Silksong/comments/1w3risy/these_low_quality_silkposts_are_really_getting/)
+- [“Can I keep her?” (by @Jojosunshine)](https://www.reddit.com/r/Silksong/comments/1w3inxa/can_i_keep_her_by_jojosunshine/)
+- [The Flea dodge trial looks roughly like this](https://www.reddit.com/r/Silksong/comments/1w3l93d/the_flea_dodge_trial_looks_roughly_like_this/)
