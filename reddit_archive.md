@@ -2640,3 +2640,11 @@
 - [These low quality Silkposts are really getting out of hand](https://www.reddit.com/r/Silksong/comments/1w3risy/these_low_quality_silkposts_are_really_getting/)
 - [“Can I keep her?” (by @Jojosunshine)](https://www.reddit.com/r/Silksong/comments/1w3inxa/can_i_keep_her_by_jojosunshine/)
 - [The Flea dodge trial looks roughly like this](https://www.reddit.com/r/Silksong/comments/1w3l93d/the_flea_dodge_trial_looks_roughly_like_this/)
+
+## 2026-09-02
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [not a silkpost, surprisingly. wait does that mean that they (atleast jasmine) knows about community injokes? does she know what a silkpost is???](https://www.reddit.com/r/Silksong/comments/1w486ym/not_a_silkpost_surprisingly_wait_does_that_mean/)
+- [always facetank, never punished](https://www.reddit.com/r/Silksong/comments/1w4gb2a/always_facetank_never_punished/)
+- [“Draw me like one of your Weavers” (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1w4jkhr/draw_me_like_one_of_your_weavers_by_adouukoi/)
