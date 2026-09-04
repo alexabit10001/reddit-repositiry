@@ -2656,3 +2656,11 @@
 - [Training routine: Do one push up for every day you didn't communicate with fandom](https://www.reddit.com/r/Silksong/comments/1w5gddz/training_routine_do_one_push_up_for_every_day_you/)
 - [A call for the knight](https://www.reddit.com/r/Silksong/comments/1w5ic7o/a_call_for_the_knight/)
 - [Finished my second custom Needle. Still can't beat Silksong.](https://www.reddit.com/r/Silksong/comments/1w56h3l/finished_my_second_custom_needle_still_cant_beat/)
+
+## 2026-09-04
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [History doesn't repeat itself, but it rhymes](https://www.reddit.com/r/Silksong/comments/1w6gzqz/history_doesnt_repeat_itself_but_it_rhymes/)
+- ["Mine" (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1w6klty/mine_art_by_adouukoi/)
+- [[kinda news]: breaking, just in, matthew "leth" griffin just tweeted in response to a silksong tweet, this is not a drill, not a silkpost, [verified], [official], yada yada, i'm actually serious this time](https://www.reddit.com/r/Silksong/comments/1w6bjzp/kinda_news_breaking_just_in_matthew_leth_griffin/)
