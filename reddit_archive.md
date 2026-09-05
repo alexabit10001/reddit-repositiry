@@ -2664,3 +2664,11 @@
 - [History doesn't repeat itself, but it rhymes](https://www.reddit.com/r/Silksong/comments/1w6gzqz/history_doesnt_repeat_itself_but_it_rhymes/)
 - ["Mine" (art by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1w6klty/mine_art_by_adouukoi/)
 - [[kinda news]: breaking, just in, matthew "leth" griffin just tweeted in response to a silksong tweet, this is not a drill, not a silkpost, [verified], [official], yada yada, i'm actually serious this time](https://www.reddit.com/r/Silksong/comments/1w6bjzp/kinda_news_breaking_just_in_matthew_leth_griffin/)
+
+## 2026-09-05
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [$$400 Donated to Outright International for Pride Stickers!](https://www.reddit.com/r/Silksong/comments/1u9czab/400_donated_to_outright_international_for_pride/)
+- [Happy first year of Silksong!](https://www.reddit.com/r/Silksong/comments/1w73jg8/happy_first_year_of_silksong/)
+- [Happy One Year of Silksong! :D](https://www.reddit.com/r/Silksong/comments/1w76k1p/happy_one_year_of_silksong_d/)
+- [Claim your "I was here" button! #Sorrow4September](https://www.reddit.com/r/Silksong/comments/1w7fe9e/claim_your_i_was_here_button_sorrow4september/)
