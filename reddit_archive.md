@@ -2672,3 +2672,11 @@
 - [Happy first year of Silksong!](https://www.reddit.com/r/Silksong/comments/1w73jg8/happy_first_year_of_silksong/)
 - [Happy One Year of Silksong! :D](https://www.reddit.com/r/Silksong/comments/1w76k1p/happy_one_year_of_silksong_d/)
 - [Claim your "I was here" button! #Sorrow4September](https://www.reddit.com/r/Silksong/comments/1w7fe9e/claim_your_i_was_here_button_sorrow4september/)
+
+## 2026-09-06
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Round 2: Icon Poll](https://www.reddit.com/r/Silksong/comments/1w8fxsf/round_2_icon_poll/)
+- [fury bind is underrated](https://www.reddit.com/r/Silksong/comments/1w85f71/fury_bind_is_underrated/)
+- [We’ve got NO Jin, NO Karma, NO Geo, and NO rosaries](https://www.reddit.com/r/Silksong/comments/1w8fsf4/weve_got_no_jin_no_karma_no_geo_and_no_rosaries/)
+- [Lace-craft (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1w83vad/lacecraft_art_by_red_krabo/)
