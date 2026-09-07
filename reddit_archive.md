@@ -2680,3 +2680,11 @@
 - [fury bind is underrated](https://www.reddit.com/r/Silksong/comments/1w85f71/fury_bind_is_underrated/)
 - [We’ve got NO Jin, NO Karma, NO Geo, and NO rosaries](https://www.reddit.com/r/Silksong/comments/1w8fsf4/weve_got_no_jin_no_karma_no_geo_and_no_rosaries/)
 - [Lace-craft (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1w83vad/lacecraft_art_by_red_krabo/)
+
+## 2026-09-07
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Round 2: Icon Poll](https://www.reddit.com/r/Silksong/comments/1w8fxsf/round_2_icon_poll/)
+- [Still not nerfed btw](https://www.reddit.com/r/Silksong/comments/1w97wvr/still_not_nerfed_btw/)
+- [... is this normal?](https://www.reddit.com/r/Silksong/comments/1w8sfhn/is_this_normal/)
+- [(Kinda News) Sebastian Wolff has announced that HK and Silksongs music are now being managed by Materia.](https://www.reddit.com/r/Silksong/comments/1w9b7dd/kinda_news_sebastian_wolff_has_announced_that_hk/)
