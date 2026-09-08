@@ -2688,3 +2688,11 @@
 - [Still not nerfed btw](https://www.reddit.com/r/Silksong/comments/1w97wvr/still_not_nerfed_btw/)
 - [... is this normal?](https://www.reddit.com/r/Silksong/comments/1w8sfhn/is_this_normal/)
 - [(Kinda News) Sebastian Wolff has announced that HK and Silksongs music are now being managed by Materia.](https://www.reddit.com/r/Silksong/comments/1w9b7dd/kinda_news_sebastian_wolff_has_announced_that_hk/)
+
+## 2026-09-08
+### r/Silksong — hot (day)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Round 2: Icon Poll](https://www.reddit.com/r/Silksong/comments/1w8fxsf/round_2_icon_poll/)
+- [Gay (Art by Shantysixix)](https://www.reddit.com/r/Silksong/comments/1w9rq2g/gay_art_by_shantysixix/)
+- [Longclaw WISHES](https://www.reddit.com/r/Silksong/comments/1w9tyof/longclaw_wishes/)
+- [Lace artwork by me](https://www.reddit.com/r/Silksong/comments/1wa610i/lace_artwork_by_me/)
