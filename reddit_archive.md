@@ -2696,3 +2696,11 @@
 - [Gay (Art by Shantysixix)](https://www.reddit.com/r/Silksong/comments/1w9rq2g/gay_art_by_shantysixix/)
 - [Longclaw WISHES](https://www.reddit.com/r/Silksong/comments/1w9tyof/longclaw_wishes/)
 - [Lace artwork by me](https://www.reddit.com/r/Silksong/comments/1wa610i/lace_artwork_by_me/)
+
+## 2026-09-09
+### r/Silksong — hot (day)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Poor Lace witnessing cruelty of the spider.](https://www.reddit.com/r/Silksong/comments/1wb3dil/poor_lace_witnessing_cruelty_of_the_spider/)
+- [New comers wondering what the new icon is now.](https://www.reddit.com/r/Silksong/comments/1wb6lcj/new_comers_wondering_what_the_new_icon_is_now/)
+- [SEA OF SORROW TOMORROW](https://www.reddit.com/r/Silksong/comments/1wb0l0k/sea_of_sorrow_tomorrow/)
