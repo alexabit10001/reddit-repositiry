@@ -2704,3 +2704,11 @@
 - [Poor Lace witnessing cruelty of the spider.](https://www.reddit.com/r/Silksong/comments/1wb3dil/poor_lace_witnessing_cruelty_of_the_spider/)
 - [New comers wondering what the new icon is now.](https://www.reddit.com/r/Silksong/comments/1wb6lcj/new_comers_wondering_what_the_new_icon_is_now/)
 - [SEA OF SORROW TOMORROW](https://www.reddit.com/r/Silksong/comments/1wb0l0k/sea_of_sorrow_tomorrow/)
+
+## 2026-09-10
+### r/Silksong — hot (day)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [BREAKING: SEA OF SORROW RELEASE DATE NOT ANNOUNCED (in Nintendo Direct, 9.9.2026); THIS IS REAL!](https://www.reddit.com/r/Silksong/comments/1wbnl3k/breaking_sea_of_sorrow_release_date_not_announced/)
+- [You met me at a very Scottish time of my life](https://www.reddit.com/r/Silksong/comments/1wbpg49/you_met_me_at_a_very_scottish_time_of_my_life/)
+- [r/Scotland has been added to the "RELATED COMMUNITIES" section of r/Silksong.](https://www.reddit.com/r/Silksong/comments/1wbi9uu/rscotland_has_been_added_to_the_related/)
