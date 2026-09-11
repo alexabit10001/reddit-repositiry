@@ -2712,3 +2712,11 @@
 - [BREAKING: SEA OF SORROW RELEASE DATE NOT ANNOUNCED (in Nintendo Direct, 9.9.2026); THIS IS REAL!](https://www.reddit.com/r/Silksong/comments/1wbnl3k/breaking_sea_of_sorrow_release_date_not_announced/)
 - [You met me at a very Scottish time of my life](https://www.reddit.com/r/Silksong/comments/1wbpg49/you_met_me_at_a_very_scottish_time_of_my_life/)
 - [r/Scotland has been added to the "RELATED COMMUNITIES" section of r/Silksong.](https://www.reddit.com/r/Silksong/comments/1wbi9uu/rscotland_has_been_added_to_the_related/)
+
+## 2026-09-11
+### r/Silksong — hot (day)
+- [🏴󠁧󠁢󠁳󠁣󠁴󠁿 YOUR HEARING IS IN SESSION. Vote for a new Scotland user flair!](https://www.reddit.com/r/Silksong/comments/1wcs5gf/your_hearing_is_in_session_vote_for_a_new/)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [Loam deserves a big hug..](https://www.reddit.com/r/Silksong/comments/1wcrp7q/loam_deserves_a_big_hug/)
+- [Someone posted my animation, cropped out my watermark, and is larping as if they made it 😭😭](https://www.reddit.com/r/Silksong/comments/1wcpxpz/someone_posted_my_animation_cropped_out_my/)
+- [Why would Team Cherry post this!?? Shouldn't they be focusing on finishing the DLC??](https://www.reddit.com/r/Silksong/comments/1wclios/why_would_team_cherry_post_this_shouldnt_they_be/)
