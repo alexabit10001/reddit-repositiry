@@ -2720,3 +2720,11 @@
 - [Loam deserves a big hug..](https://www.reddit.com/r/Silksong/comments/1wcrp7q/loam_deserves_a_big_hug/)
 - [Someone posted my animation, cropped out my watermark, and is larping as if they made it 😭😭](https://www.reddit.com/r/Silksong/comments/1wcpxpz/someone_posted_my_animation_cropped_out_my/)
 - [Why would Team Cherry post this!?? Shouldn't they be focusing on finishing the DLC??](https://www.reddit.com/r/Silksong/comments/1wclios/why_would_team_cherry_post_this_shouldnt_they_be/)
+
+## 2026-09-12
+### r/Silksong — hot (day)
+- [🏴󠁧󠁢󠁳󠁣󠁴󠁿 YOUR HEARING IS IN SESSION. Vote for a new Scotland user flair!](https://www.reddit.com/r/Silksong/comments/1wcs5gf/your_hearing_is_in_session_vote_for_a_new/)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [I’m still not over how hype this battle was (Art by Odem_Logs)](https://www.reddit.com/r/Silksong/comments/1wdidex/im_still_not_over_how_hype_this_battle_was_art_by/)
+- [Little Ghost, then Hornet, What's next?](https://www.reddit.com/r/Silksong/comments/1wdjyd1/little_ghost_then_hornet_whats_next/)
+- [(OC) Sometimes our editors get bored and post shitposts like this in the group chat...](https://www.reddit.com/r/Silksong/comments/1wdu247/oc_sometimes_our_editors_get_bored_and_post/)
