@@ -2728,3 +2728,11 @@
 - [I’m still not over how hype this battle was (Art by Odem_Logs)](https://www.reddit.com/r/Silksong/comments/1wdidex/im_still_not_over_how_hype_this_battle_was_art_by/)
 - [Little Ghost, then Hornet, What's next?](https://www.reddit.com/r/Silksong/comments/1wdjyd1/little_ghost_then_hornet_whats_next/)
 - [(OC) Sometimes our editors get bored and post shitposts like this in the group chat...](https://www.reddit.com/r/Silksong/comments/1wdu247/oc_sometimes_our_editors_get_bored_and_post/)
+
+## 2026-09-13
+### r/Silksong — hot (day)
+- [🏴󠁧󠁢󠁳󠁣󠁴󠁿 YOUR HEARING IS IN SESSION. Vote for a new Scotland user flair!](https://www.reddit.com/r/Silksong/comments/1wcs5gf/your_hearing_is_in_session_vote_for_a_new/)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [one step above purring](https://www.reddit.com/r/Silksong/comments/1weffom/one_step_above_purring/)
+- [It all comes tumbling down](https://www.reddit.com/r/Silksong/comments/1wecvs0/it_all_comes_tumbling_down/)
+- [If SILKSONG's godhome had special bosses (like sheo in hollow knight)What could they be??](https://www.reddit.com/r/Silksong/comments/1wehnv6/if_silksongs_godhome_had_special_bosses_like_sheo/)
