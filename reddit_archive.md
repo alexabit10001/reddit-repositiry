@@ -2736,3 +2736,11 @@
 - [one step above purring](https://www.reddit.com/r/Silksong/comments/1weffom/one_step_above_purring/)
 - [It all comes tumbling down](https://www.reddit.com/r/Silksong/comments/1wecvs0/it_all_comes_tumbling_down/)
 - [If SILKSONG's godhome had special bosses (like sheo in hollow knight)What could they be??](https://www.reddit.com/r/Silksong/comments/1wehnv6/if_silksongs_godhome_had_special_bosses_like_sheo/)
+
+## 2026-09-14
+### r/Silksong — hot (day)
+- [New Flair Unlocked! Scotsong Forever!](https://www.reddit.com/r/Silksong/comments/1wfkd4s/new_flair_unlocked_scotsong_forever/)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [“Dude I knew you were cool”](https://www.reddit.com/r/Silksong/comments/1wfaw9z/dude_i_knew_you_were_cool/)
+- [Christopher Larkin released Sea of Sorrow's ost](https://www.reddit.com/r/Silksong/comments/1wfapg6/christopher_larkin_released_sea_of_sorrows_ost/)
+- [Boys, girls and everyone in between is this true?](https://www.reddit.com/r/Silksong/comments/1wfn4d7/boys_girls_and_everyone_in_between_is_this_true/)
