@@ -2744,3 +2744,11 @@
 - [“Dude I knew you were cool”](https://www.reddit.com/r/Silksong/comments/1wfaw9z/dude_i_knew_you_were_cool/)
 - [Christopher Larkin released Sea of Sorrow's ost](https://www.reddit.com/r/Silksong/comments/1wfapg6/christopher_larkin_released_sea_of_sorrows_ost/)
 - [Boys, girls and everyone in between is this true?](https://www.reddit.com/r/Silksong/comments/1wfn4d7/boys_girls_and_everyone_in_between_is_this_true/)
+
+## 2026-09-15
+### r/Silksong — hot (day)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Yea I cooked, no more words need be said](https://www.reddit.com/r/Silksong/comments/1wg5esy/yea_i_cooked_no_more_words_need_be_said/)
+- [Settle it with Shakra (art by @kktwojingle)](https://www.reddit.com/r/Silksong/comments/1wg46yg/settle_it_with_shakra_art_by_kktwojingle/)
+- [Annoying younger sibling (Animation by Muhahaa555)](https://www.reddit.com/r/Silksong/comments/1wg47ug/annoying_younger_sibling_animation_by_muhahaa555/)
