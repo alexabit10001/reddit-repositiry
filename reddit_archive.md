@@ -2752,3 +2752,11 @@
 - [Yea I cooked, no more words need be said](https://www.reddit.com/r/Silksong/comments/1wg5esy/yea_i_cooked_no_more_words_need_be_said/)
 - [Settle it with Shakra (art by @kktwojingle)](https://www.reddit.com/r/Silksong/comments/1wg46yg/settle_it_with_shakra_art_by_kktwojingle/)
 - [Annoying younger sibling (Animation by Muhahaa555)](https://www.reddit.com/r/Silksong/comments/1wg47ug/annoying_younger_sibling_animation_by_muhahaa555/)
+
+## 2026-09-16
+### r/Silksong — hot (day)
+- [New Icon Saga Comes to a Close](https://www.reddit.com/r/Silksong/comments/1wb5xjt/new_icon_saga_comes_to_a_close/)
+- [Silken Heart is now confirmed to be finished sometime next year. Feedback was astronomically supportive. Every beta reader for the manga loved it, some moved to tears. Release date set for sometime in 2027. "254 pages of peak." See you all then.](https://www.reddit.com/r/Silksong/comments/1w1waej/silken_heart_is_now_confirmed_to_be_finished/)
+- [Hornet x Second Sentinel. WAIT HORNET I DIDN'T MEAN IT LITERALLY!](https://www.reddit.com/r/Silksong/comments/1wgzxbl/hornet_x_second_sentinel_wait_hornet_i_didnt_mean/)
+- [Her tough-guy personality is ruined 💛 (by @116116116EL)](https://www.reddit.com/r/Silksong/comments/1wh6yly/her_toughguy_personality_is_ruined_by_116116116el/)
+- [Ari Gibson Says ‘Silksong’ Fans Can “Eat Shit”, Says Sea of Sorrow Will Arrive in 2036](https://www.reddit.com/r/Silksong/comments/1wh6c4h/ari_gibson_says_silksong_fans_can_eat_shit_says/)
