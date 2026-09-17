@@ -2760,3 +2760,11 @@
 - [Hornet x Second Sentinel. WAIT HORNET I DIDN'T MEAN IT LITERALLY!](https://www.reddit.com/r/Silksong/comments/1wgzxbl/hornet_x_second_sentinel_wait_hornet_i_didnt_mean/)
 - [Her tough-guy personality is ruined 💛 (by @116116116EL)](https://www.reddit.com/r/Silksong/comments/1wh6yly/her_toughguy_personality_is_ruined_by_116116116el/)
 - [Ari Gibson Says ‘Silksong’ Fans Can “Eat Shit”, Says Sea of Sorrow Will Arrive in 2036](https://www.reddit.com/r/Silksong/comments/1wh6c4h/ari_gibson_says_silksong_fans_can_eat_shit_says/)
+
+## 2026-09-17
+### r/Silksong — hot (day)
+- [Didn't think I would see Cornifer cuck art today (@116116116EL on Twitter)](https://www.reddit.com/r/Silksong/comments/1wi5kc6/didnt_think_i_would_see_cornifer_cuck_art_today/)
+- [Why is the infection back in act 3?](https://www.reddit.com/r/Silksong/comments/1wi0z9b/why_is_the_infection_back_in_act_3/)
+- [Spikey (Art by SaltySerpent)](https://www.reddit.com/r/Silksong/comments/1whyper/spikey_art_by_saltyserpent/)
+- [Did this happen to anyone else?](https://www.reddit.com/r/Silksong/comments/1whvxfg/did_this_happen_to_anyone_else/)
+- [NOBODY DARES TO SAY LACE X HORNET ISNT A THING (By @116.116116)](https://www.reddit.com/r/Silksong/comments/1whwfzs/nobody_dares_to_say_lace_x_hornet_isnt_a_thing_by/)
