@@ -2768,3 +2768,11 @@
 - [Spikey (Art by SaltySerpent)](https://www.reddit.com/r/Silksong/comments/1whyper/spikey_art_by_saltyserpent/)
 - [Did this happen to anyone else?](https://www.reddit.com/r/Silksong/comments/1whvxfg/did_this_happen_to_anyone_else/)
 - [NOBODY DARES TO SAY LACE X HORNET ISNT A THING (By @116.116116)](https://www.reddit.com/r/Silksong/comments/1whwfzs/nobody_dares_to_say_lace_x_hornet_isnt_a_thing_by/)
+
+## 2026-09-18
+### r/Silksong — hot (day)
+- [beach episode can't come soon enough](https://www.reddit.com/r/Silksong/comments/1wiveyc/beach_episode_cant_come_soon_enough/)
+- [Do you guys also think the game gives too much directions on where to go?](https://www.reddit.com/r/Silksong/comments/1witkbr/do_you_guys_also_think_the_game_gives_too_much/)
+- [IM FROM 2026 AND SILKSONG RELEASES IN 2025!](https://www.reddit.com/r/Silksong/comments/1wjc26r/im_from_2026_and_silksong_releases_in_2025/)
+- [Sherma meets one of the fleas (by scp999ticklemonster)](https://www.reddit.com/r/Silksong/comments/1wj1x2l/sherma_meets_one_of_the_fleas_by/)
+- [Day 49 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1wj4noe/day_49_of_beating_the_tutorial_every_day_until_i/)
