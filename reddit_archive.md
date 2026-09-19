@@ -2776,3 +2776,11 @@
 - [IM FROM 2026 AND SILKSONG RELEASES IN 2025!](https://www.reddit.com/r/Silksong/comments/1wjc26r/im_from_2026_and_silksong_releases_in_2025/)
 - [Sherma meets one of the fleas (by scp999ticklemonster)](https://www.reddit.com/r/Silksong/comments/1wj1x2l/sherma_meets_one_of_the_fleas_by/)
 - [Day 49 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1wj4noe/day_49_of_beating_the_tutorial_every_day_until_i/)
+
+## 2026-09-19
+### r/Silksong — hot (day)
+- [Strongest warrior in Pharloom btw (Art by Yukinew343471)](https://www.reddit.com/r/Silksong/comments/1wjsvm2/strongest_warrior_in_pharloom_btw_art_by/)
+- [the only move that does 10 masks of damage](https://www.reddit.com/r/Silksong/comments/1wjwdkj/the_only_move_that_does_10_masks_of_damage/)
+- [Ya'll, we did it. We actually managed to convince google ai that silksong DOESN'T have an act 4!](https://www.reddit.com/r/Silksong/comments/1wk6hdo/yall_we_did_it_we_actually_managed_to_convince/)
+- [Day 50 of beating the Tutorial every day until I can't anymore... END OF PART 1!](https://www.reddit.com/r/Silksong/comments/1wk1o1c/day_50_of_beating_the_tutorial_every_day_until_i/)
+- [Brooo who told google AI](https://www.reddit.com/r/Silksong/comments/1wjnmo0/brooo_who_told_google_ai/)
