@@ -2784,3 +2784,11 @@
 - [Ya'll, we did it. We actually managed to convince google ai that silksong DOESN'T have an act 4!](https://www.reddit.com/r/Silksong/comments/1wk6hdo/yall_we_did_it_we_actually_managed_to_convince/)
 - [Day 50 of beating the Tutorial every day until I can't anymore... END OF PART 1!](https://www.reddit.com/r/Silksong/comments/1wk1o1c/day_50_of_beating_the_tutorial_every_day_until_i/)
 - [Brooo who told google AI](https://www.reddit.com/r/Silksong/comments/1wjnmo0/brooo_who_told_google_ai/)
+
+## 2026-09-20
+### r/Silksong — hot (day)
+- [My wife and I got into an argument so I hit her over the head with my switch. Hundreds of hours of Silksong Lost :(](https://www.reddit.com/r/Silksong/comments/1wkv8gu/my_wife_and_i_got_into_an_argument_so_i_hit_her/)
+- [Hornet's Schedule](https://www.reddit.com/r/Silksong/comments/1wl29tz/hornets_schedule/)
+- [We should start making up areas to confuse the Google AI](https://www.reddit.com/r/Silksong/comments/1wku3uk/we_should_start_making_up_areas_to_confuse_the/)
+- [I saw fangamer promote silksong merch and thought this would be funny to make](https://www.reddit.com/r/Silksong/comments/1wl053x/i_saw_fangamer_promote_silksong_merch_and_thought/)
+- [: R (art by @arito_meew)](https://www.reddit.com/r/Silksong/comments/1wkvdmx/r_art_by_arito_meew/)
