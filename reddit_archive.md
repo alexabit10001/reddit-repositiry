@@ -2792,3 +2792,11 @@
 - [We should start making up areas to confuse the Google AI](https://www.reddit.com/r/Silksong/comments/1wku3uk/we_should_start_making_up_areas_to_confuse_the/)
 - [I saw fangamer promote silksong merch and thought this would be funny to make](https://www.reddit.com/r/Silksong/comments/1wl053x/i_saw_fangamer_promote_silksong_merch_and_thought/)
 - [: R (art by @arito_meew)](https://www.reddit.com/r/Silksong/comments/1wkvdmx/r_art_by_arito_meew/)
+
+## 2026-09-21
+### r/Silksong — hot (day)
+- [Hornet beating Lace's giant meat in the 18+ Strings of silk DLC](https://www.reddit.com/r/Silksong/comments/1wlu8q0/hornet_beating_laces_giant_meat_in_the_18_strings/)
+- [What is your worst death in steel soul mode?](https://www.reddit.com/r/Silksong/comments/1wlophb/what_is_your_worst_death_in_steel_soul_mode/)
+- [[BREAKING] Team Cherry are losing their minds over DELTARUNE](https://www.reddit.com/r/Silksong/comments/1wlk7t8/breaking_team_cherry_are_losing_their_minds_over/)
+- [Team cherry confirms a new dlc next year](https://www.reddit.com/r/Silksong/comments/1wlbb3c/team_cherry_confirms_a_new_dlc_next_year/)
+- [Crochet Hornet i made!](https://www.reddit.com/r/Silksong/comments/1wlm1dg/crochet_hornet_i_made/)
