@@ -2800,3 +2800,11 @@
 - [[BREAKING] Team Cherry are losing their minds over DELTARUNE](https://www.reddit.com/r/Silksong/comments/1wlk7t8/breaking_team_cherry_are_losing_their_minds_over/)
 - [Team cherry confirms a new dlc next year](https://www.reddit.com/r/Silksong/comments/1wlbb3c/team_cherry_confirms_a_new_dlc_next_year/)
 - [Crochet Hornet i made!](https://www.reddit.com/r/Silksong/comments/1wlm1dg/crochet_hornet_i_made/)
+
+## 2026-09-22
+### r/Silksong — hot (day)
+- [Why do people say this runback is bad? The bench is really close](https://www.reddit.com/r/Silksong/comments/1wmlflg/why_do_people_say_this_runback_is_bad_the_bench/)
+- [Remade my first Shakollow comic!](https://www.reddit.com/r/Silksong/comments/1wmv0t8/remade_my_first_shakollow_comic/)
+- [Lace, buddy, wtf are we doing](https://www.reddit.com/r/Silksong/comments/1wmcyzt/lace_buddy_wtf_are_we_doing/)
+- [This place has became a shitposting subreddit and I don't like it.](https://www.reddit.com/r/Silksong/comments/1wmi8pb/this_place_has_became_a_shitposting_subreddit_and/)
+- [Hornet, please.](https://www.reddit.com/r/Silksong/comments/1wmwd1a/hornet_please/)
