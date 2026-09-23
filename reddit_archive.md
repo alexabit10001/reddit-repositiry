@@ -2808,3 +2808,11 @@
 - [Lace, buddy, wtf are we doing](https://www.reddit.com/r/Silksong/comments/1wmcyzt/lace_buddy_wtf_are_we_doing/)
 - [This place has became a shitposting subreddit and I don't like it.](https://www.reddit.com/r/Silksong/comments/1wmi8pb/this_place_has_became_a_shitposting_subreddit_and/)
 - [Hornet, please.](https://www.reddit.com/r/Silksong/comments/1wmwd1a/hornet_please/)
+
+## 2026-09-23
+### r/Silksong — hot (day)
+- [A bundle of freaks](https://www.reddit.com/r/Silksong/comments/1wnopfk/a_bundle_of_freaks/)
+- [after a long day of beating the shit out of each other](https://www.reddit.com/r/Silksong/comments/1wngfdd/after_a_long_day_of_beating_the_shit_out_of_each/)
+- [I had a sudden urge to draw bug yuri](https://www.reddit.com/r/Silksong/comments/1wnf2ny/i_had_a_sudden_urge_to_draw_bug_yuri/)
+- [These new bosses are insane, specially the Blue Trobbio](https://www.reddit.com/r/Silksong/comments/1wn55ik/these_new_bosses_are_insane_specially_the_blue/)
+- [THE LACE THINGUS IS A GIF NOW](https://www.reddit.com/r/Silksong/comments/1wnlw22/the_lace_thingus_is_a_gif_now/)
