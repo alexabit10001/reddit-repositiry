@@ -2816,3 +2816,11 @@
 - [I had a sudden urge to draw bug yuri](https://www.reddit.com/r/Silksong/comments/1wnf2ny/i_had_a_sudden_urge_to_draw_bug_yuri/)
 - [These new bosses are insane, specially the Blue Trobbio](https://www.reddit.com/r/Silksong/comments/1wn55ik/these_new_bosses_are_insane_specially_the_blue/)
 - [THE LACE THINGUS IS A GIF NOW](https://www.reddit.com/r/Silksong/comments/1wnlw22/the_lace_thingus_is_a_gif_now/)
+
+## 2026-09-24
+### r/Silksong — hot (day)
+- [Drew hornet in different artstyles (gore warning on the third slide)](https://www.reddit.com/r/Silksong/comments/1wo66rt/drew_hornet_in_different_artstyles_gore_warning/)
+- [The new Bell Beast texture looks so dull & flat](https://www.reddit.com/r/Silksong/comments/1wo7f9s/the_new_bell_beast_texture_looks_so_dull_flat/)
+- [[CW: GORE] HORNET MURDERS A FAMILY OF 3 AT GUNPOINT AND ROBS THE CORPSES](https://www.reddit.com/r/Silksong/comments/1woc8u2/cw_gore_hornet_murders_a_family_of_3_at_gunpoint/)
+- [True silksong? Yes](https://www.reddit.com/r/Silksong/comments/1wohvom/true_silksong_yes/)
+- [What if Karmelita was in her prime during the game events?](https://www.reddit.com/r/Silksong/comments/1wooyhw/what_if_karmelita_was_in_her_prime_during_the/)
