@@ -2824,3 +2824,11 @@
 - [[CW: GORE] HORNET MURDERS A FAMILY OF 3 AT GUNPOINT AND ROBS THE CORPSES](https://www.reddit.com/r/Silksong/comments/1woc8u2/cw_gore_hornet_murders_a_family_of_3_at_gunpoint/)
 - [True silksong? Yes](https://www.reddit.com/r/Silksong/comments/1wohvom/true_silksong_yes/)
 - [What if Karmelita was in her prime during the game events?](https://www.reddit.com/r/Silksong/comments/1wooyhw/what_if_karmelita_was_in_her_prime_during_the/)
+
+## 2026-09-25
+### r/Silksong — hot (day)
+- [That’s not how Lace wanted to be dominated (by @ChudlingHornet)](https://www.reddit.com/r/Silksong/comments/1wp2trb/thats_not_how_lace_wanted_to_be_dominated_by/)
+- [first underwater bossfight letssssss goooooooo](https://www.reddit.com/r/Silksong/comments/1woxvjr/first_underwater_bossfight_letssssss_goooooooo/)
+- [FINAL Daily r/silksong news (day 365)](https://www.reddit.com/r/Silksong/comments/1wpdcvt/final_daily_rsilksong_news_day_365/)
+- [Does anyone else love spamming Clawline? 😭](https://www.reddit.com/r/Silksong/comments/1wpderb/does_anyone_else_love_spamming_clawline/)
+- [NEW LEAKED IMAGE OF ACT 4!!](https://www.reddit.com/r/Silksong/comments/1wpci3e/new_leaked_image_of_act_4/)
