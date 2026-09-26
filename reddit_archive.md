@@ -2832,3 +2832,11 @@
 - [FINAL Daily r/silksong news (day 365)](https://www.reddit.com/r/Silksong/comments/1wpdcvt/final_daily_rsilksong_news_day_365/)
 - [Does anyone else love spamming Clawline? 😭](https://www.reddit.com/r/Silksong/comments/1wpderb/does_anyone_else_love_spamming_clawline/)
 - [NEW LEAKED IMAGE OF ACT 4!!](https://www.reddit.com/r/Silksong/comments/1wpci3e/new_leaked_image_of_act_4/)
+
+## 2026-09-26
+### r/Silksong — hot (day)
+- [30 seconds in heaven](https://www.reddit.com/r/Silksong/comments/1wq4imo/30_seconds_in_heaven/)
+- [Does anyone else really miss Ari's old artstyle (circa HK to ~2022) or is it just me :(](https://www.reddit.com/r/Silksong/comments/1wqbym5/does_anyone_else_really_miss_aris_old_artstyle/)
+- [She is currently judging](https://www.reddit.com/r/Silksong/comments/1wpsfho/she_is_currently_judging/)
+- [Rosary string came in clutch!](https://www.reddit.com/r/Silksong/comments/1wpwnvn/rosary_string_came_in_clutch/)
+- [My dearest Shakra 💚 (silly art by me)](https://www.reddit.com/r/Silksong/comments/1wpzpei/my_dearest_shakra_silly_art_by_me/)
