@@ -2840,3 +2840,11 @@
 - [She is currently judging](https://www.reddit.com/r/Silksong/comments/1wpsfho/she_is_currently_judging/)
 - [Rosary string came in clutch!](https://www.reddit.com/r/Silksong/comments/1wpwnvn/rosary_string_came_in_clutch/)
 - [My dearest Shakra 💚 (silly art by me)](https://www.reddit.com/r/Silksong/comments/1wpzpei/my_dearest_shakra_silly_art_by_me/)
+
+## 2026-09-27
+### r/Silksong — hot (day)
+- [[himeragi136] Touched Starved Lace](https://www.reddit.com/r/Silksong/comments/1wqq7dm/himeragi136_touched_starved_lace/)
+- [Beast crest gameplay](https://www.reddit.com/r/Silksong/comments/1wqqr6w/beast_crest_gameplay/)
+- [My kid's Silksong Fan Art](https://www.reddit.com/r/Silksong/comments/1wqr12c/my_kids_silksong_fan_art/)
+- [Update: I mounted my cosplay](https://www.reddit.com/r/Silksong/comments/1wr2ywl/update_i_mounted_my_cosplay/)
+- [So like...how much?](https://www.reddit.com/r/Silksong/comments/1wqpeel/so_likehow_much/)
