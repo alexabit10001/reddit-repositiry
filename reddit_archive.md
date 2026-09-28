@@ -2848,3 +2848,11 @@
 - [My kid's Silksong Fan Art](https://www.reddit.com/r/Silksong/comments/1wqr12c/my_kids_silksong_fan_art/)
 - [Update: I mounted my cosplay](https://www.reddit.com/r/Silksong/comments/1wr2ywl/update_i_mounted_my_cosplay/)
 - [So like...how much?](https://www.reddit.com/r/Silksong/comments/1wqpeel/so_likehow_much/)
+
+## 2026-09-28
+### r/Silksong — hot (day)
+- [Hornet, really?! (comic by me, Green Prince spoilers)](https://www.reddit.com/r/Silksong/comments/1wrosqq/hornet_really_comic_by_me_green_prince_spoilers/)
+- [The two greatest map makers](https://www.reddit.com/r/Silksong/comments/1wrob6c/the_two_greatest_map_makers/)
+- [Art by @116.116116 from insta.](https://www.reddit.com/r/Silksong/comments/1wrbqhw/art_by_116116116_from_insta/)
+- [Expanded Bilewater](https://www.reddit.com/r/Silksong/comments/1wrk326/expanded_bilewater/)
+- [Easy way to practice Clawline tech!](https://www.reddit.com/r/Silksong/comments/1wrvlf3/easy_way_to_practice_clawline_tech/)
