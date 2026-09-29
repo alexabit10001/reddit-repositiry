@@ -2856,3 +2856,11 @@
 - [Art by @116.116116 from insta.](https://www.reddit.com/r/Silksong/comments/1wrbqhw/art_by_116116116_from_insta/)
 - [Expanded Bilewater](https://www.reddit.com/r/Silksong/comments/1wrk326/expanded_bilewater/)
 - [Easy way to practice Clawline tech!](https://www.reddit.com/r/Silksong/comments/1wrvlf3/easy_way_to_practice_clawline_tech/)
+
+## 2026-09-29
+### r/Silksong — hot (day)
+- [Phantom and Lace in Vietnamese traditional clothes (by @MikeThePotato)](https://www.reddit.com/r/Silksong/comments/1wss9iz/phantom_and_lace_in_vietnamese_traditional/)
+- [Insane hornet frame 😆](https://www.reddit.com/r/Silksong/comments/1wsq5og/insane_hornet_frame/)
+- [Bug yuri never gets old (Art by Artemyx)](https://www.reddit.com/r/Silksong/comments/1wsgerl/bug_yuri_never_gets_old_art_by_artemyx/)
+- [Suggest ideas on what I should Lace doing](https://www.reddit.com/r/Silksong/comments/1wst04m/suggest_ideas_on_what_i_should_lace_doing/)
+- [TC just posted a job offer SEA OF SORROW TOMORROW?????????](https://www.reddit.com/r/Silksong/comments/1wsf6i7/tc_just_posted_a_job_offer_sea_of_sorrow_tomorrow/)
