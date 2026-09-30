@@ -2864,3 +2864,11 @@
 - [Bug yuri never gets old (Art by Artemyx)](https://www.reddit.com/r/Silksong/comments/1wsgerl/bug_yuri_never_gets_old_art_by_artemyx/)
 - [Suggest ideas on what I should Lace doing](https://www.reddit.com/r/Silksong/comments/1wst04m/suggest_ideas_on_what_i_should_lace_doing/)
 - [TC just posted a job offer SEA OF SORROW TOMORROW?????????](https://www.reddit.com/r/Silksong/comments/1wsf6i7/tc_just_posted_a_job_offer_sea_of_sorrow_tomorrow/)
+
+## 2026-09-30
+### r/Silksong — hot (day)
+- [Reaching the surface (by @kaisu-creations)](https://www.reddit.com/r/Silksong/comments/1wtizip/reaching_the_surface_by_kaisucreations/)
+- [Siblings (Art by I7xvz)](https://www.reddit.com/r/Silksong/comments/1wtblqt/siblings_art_by_i7xvz/)
+- [Hornet and Bell beast <3 [by me]](https://www.reddit.com/r/Silksong/comments/1wtik5j/hornet_and_bell_beast_3_by_me/)
+- [Everyone says it's a rabbit in the moon, I see something else.](https://www.reddit.com/r/Silksong/comments/1wtn51e/everyone_says_its_a_rabbit_in_the_moon_i_see/)
+- [Mother sees. My drawing vs my ref](https://www.reddit.com/r/Silksong/comments/1wtbx21/mother_sees_my_drawing_vs_my_ref/)
