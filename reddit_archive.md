@@ -2872,3 +2872,11 @@
 - [Hornet and Bell beast <3 [by me]](https://www.reddit.com/r/Silksong/comments/1wtik5j/hornet_and_bell_beast_3_by_me/)
 - [Everyone says it's a rabbit in the moon, I see something else.](https://www.reddit.com/r/Silksong/comments/1wtn51e/everyone_says_its_a_rabbit_in_the_moon_i_see/)
 - [Mother sees. My drawing vs my ref](https://www.reddit.com/r/Silksong/comments/1wtbx21/mother_sees_my_drawing_vs_my_ref/)
+
+## 2026-10-01
+### r/Silksong — hot (day)
+- [Hornet Fluff (art by @Aquarinss)](https://www.reddit.com/r/Silksong/comments/1wu7xxh/hornet_fluff_art_by_aquarinss/)
+- [DEAR GUY WHO MADE STEEL SOUL NOT COUNT IN DREAMS:](https://www.reddit.com/r/Silksong/comments/1wuh1mc/dear_guy_who_made_steel_soul_not_count_in_dreams/)
+- [I have to give Silksong six stars.](https://www.reddit.com/r/Silksong/comments/1wuiowo/i_have_to_give_silksong_six_stars/)
+- [Citadel enemy gijinkas](https://www.reddit.com/r/Silksong/comments/1wu7kq8/citadel_enemy_gijinkas/)
+- [I'm sorry Phantom, I'm sorry...](https://www.reddit.com/r/Silksong/comments/1wuiem6/im_sorry_phantom_im_sorry/)
