@@ -2880,3 +2880,11 @@
 - [I have to give Silksong six stars.](https://www.reddit.com/r/Silksong/comments/1wuiowo/i_have_to_give_silksong_six_stars/)
 - [Citadel enemy gijinkas](https://www.reddit.com/r/Silksong/comments/1wu7kq8/citadel_enemy_gijinkas/)
 - [I'm sorry Phantom, I'm sorry...](https://www.reddit.com/r/Silksong/comments/1wuiem6/im_sorry_phantom_im_sorry/)
+
+## 2026-10-02
+### r/Silksong — hot (day)
+- [Fortnite confirms Hollow Knight arriving Oct 7, Team Cherry (obviously) credited at the bottom. Still can't believe this is real. And yes, TC & Leth are still silent.](https://www.reddit.com/r/Silksong/comments/1wv1jjf/fortnite_confirms_hollow_knight_arriving_oct_7/)
+- [I don't like the Fortnite collab...](https://www.reddit.com/r/Silksong/comments/1wv6tqz/i_dont_like_the_fortnite_collab/)
+- [ANYTHING but finishing Sea Of Sorrow I guess...](https://www.reddit.com/r/Silksong/comments/1wuv9jn/anything_but_finishing_sea_of_sorrow_i_guess/)
+- [keeping herself occupied](https://www.reddit.com/r/Silksong/comments/1wvcnw6/keeping_herself_occupied/)
+- [[MOD POST] we have decided to add a new flair; "master baiter" to be awareded to the silkposter's"who trick the most people. the first one will go to the person who started the silksong fornite romour.](https://www.reddit.com/r/Silksong/comments/1wuxlbr/mod_post_we_have_decided_to_add_a_new_flair/)
