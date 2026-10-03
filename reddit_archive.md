@@ -2888,3 +2888,11 @@
 - [ANYTHING but finishing Sea Of Sorrow I guess...](https://www.reddit.com/r/Silksong/comments/1wuv9jn/anything_but_finishing_sea_of_sorrow_i_guess/)
 - [keeping herself occupied](https://www.reddit.com/r/Silksong/comments/1wvcnw6/keeping_herself_occupied/)
 - [[MOD POST] we have decided to add a new flair; "master baiter" to be awareded to the silkposter's"who trick the most people. the first one will go to the person who started the silksong fornite romour.](https://www.reddit.com/r/Silksong/comments/1wuxlbr/mod_post_we_have_decided_to_add_a_new_flair/)
+
+## 2026-10-03
+### r/Silksong — hot (day)
+- [Bro went on vacation for a fortnight (art by @Aquarinss)](https://www.reddit.com/r/Silksong/comments/1ww0thj/bro_went_on_vacation_for_a_fortnight_art_by/)
+- [oh fuсk i didnt think the mods would actually do it lmao thanks](https://www.reddit.com/r/Silksong/comments/1wvtysg/oh_fuсk_i_didnt_think_the_mods_would_actually_do/)
+- [Silksong interactive wallpaper I made!](https://www.reddit.com/r/Silksong/comments/1wvzwx7/silksong_interactive_wallpaper_i_made/)
+- [I've started doing Silktober, a month long drawing challenge](https://www.reddit.com/r/Silksong/comments/1wvtdcg/ive_started_doing_silktober_a_month_long_drawing/)
+- [The Silksong Lego idea has gotten 10K supporters!!!](https://www.reddit.com/r/Silksong/comments/1wvqxxk/the_silksong_lego_idea_has_gotten_10k_supporters/)
