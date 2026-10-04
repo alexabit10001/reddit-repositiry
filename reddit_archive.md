@@ -2896,3 +2896,11 @@
 - [Silksong interactive wallpaper I made!](https://www.reddit.com/r/Silksong/comments/1wvzwx7/silksong_interactive_wallpaper_i_made/)
 - [I've started doing Silktober, a month long drawing challenge](https://www.reddit.com/r/Silksong/comments/1wvtdcg/ive_started_doing_silktober_a_month_long_drawing/)
 - [The Silksong Lego idea has gotten 10K supporters!!!](https://www.reddit.com/r/Silksong/comments/1wvqxxk/the_silksong_lego_idea_has_gotten_10k_supporters/)
+
+## 2026-10-04
+### r/Silksong — hot (day)
+- [SILKSONG MADE IT INTO THE WORLD RECORDS BOOK](https://www.reddit.com/r/Silksong/comments/1wx0cl3/silksong_made_it_into_the_world_records_book/)
+- [Judgement, Day 3 of Silktober drawn in 33 minutes](https://www.reddit.com/r/Silksong/comments/1wwnp0v/judgement_day_3_of_silktober_drawn_in_33_minutes/)
+- [89 Potential days to Hollow Knight: Silksong - Sea of Sorrow release art by SagaStuff94](https://www.reddit.com/r/Silksong/comments/1wwwqxp/89_potential_days_to_hollow_knight_silksong_sea/)
+- [That’s it. I believe in God. He saved my steelsoul run.](https://www.reddit.com/r/Silksong/comments/1wwzx13/thats_it_i_believe_in_god_he_saved_my_steelsoul/)
+- [no fucking way lmao](https://www.reddit.com/r/Silksong/comments/1wwjh6j/no_fucking_way_lmao/)
