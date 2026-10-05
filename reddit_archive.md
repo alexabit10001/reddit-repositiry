@@ -2904,3 +2904,11 @@
 - [89 Potential days to Hollow Knight: Silksong - Sea of Sorrow release art by SagaStuff94](https://www.reddit.com/r/Silksong/comments/1wwwqxp/89_potential_days_to_hollow_knight_silksong_sea/)
 - [That’s it. I believe in God. He saved my steelsoul run.](https://www.reddit.com/r/Silksong/comments/1wwzx13/thats_it_i_believe_in_god_he_saved_my_steelsoul/)
 - [no fucking way lmao](https://www.reddit.com/r/Silksong/comments/1wwjh6j/no_fucking_way_lmao/)
+
+## 2026-10-05
+### r/Silksong — hot (day)
+- [THE TRAILER OF SEA OF SORROW HAS BEEN LEAKED](https://www.reddit.com/r/Silksong/comments/1wxqh8q/the_trailer_of_sea_of_sorrow_has_been_leaked/)
+- [Higher being at the Lake of Unn](https://www.reddit.com/r/Silksong/comments/1wxeatj/higher_being_at_the_lake_of_unn/)
+- [Silkpost shaped lamp](https://www.reddit.com/r/Silksong/comments/1wxasbc/silkpost_shaped_lamp/)
+- [At least 1 random player statistically just stopped here](https://www.reddit.com/r/Silksong/comments/1wxl42c/at_least_1_random_player_statistically_just/)
+- [My "Hollow Knight: Silksong" 1st Anniversary art (very late) (reupload)](https://www.reddit.com/r/Silksong/comments/1wxhfur/my_hollow_knight_silksong_1st_anniversary_art/)
