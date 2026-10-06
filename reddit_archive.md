@@ -2912,3 +2912,11 @@
 - [Silkpost shaped lamp](https://www.reddit.com/r/Silksong/comments/1wxasbc/silkpost_shaped_lamp/)
 - [At least 1 random player statistically just stopped here](https://www.reddit.com/r/Silksong/comments/1wxl42c/at_least_1_random_player_statistically_just/)
 - [My "Hollow Knight: Silksong" 1st Anniversary art (very late) (reupload)](https://www.reddit.com/r/Silksong/comments/1wxhfur/my_hollow_knight_silksong_1st_anniversary_art/)
+
+## 2026-10-06
+### r/Silksong — hot (day)
+- [HOT TAKE: Crust King Khann being really weak for an Act 3 boss is really cool because it shows that his empire wasn't built under his own phisical strenght, but the one of the army he built. This is also reflected by the fact that his gauntlet is really strong.](https://www.reddit.com/r/Silksong/comments/1wy9c4u/hot_take_crust_king_khann_being_really_weak_for/)
+- [I’m an Atheist but games like silksong make me really appreciate its take on religion.](https://www.reddit.com/r/Silksong/comments/1wyoxjc/im_an_atheist_but_games_like_silksong_make_me/)
+- ["Jesse, for what reason did you call me here?"](https://www.reddit.com/r/Silksong/comments/1wy4u5p/jesse_for_what_reason_did_you_call_me_here/)
+- [87 Potential days to Hollow Knight: Silksong - Sea of Sorrow release art by LiaAmethyst](https://www.reddit.com/r/Silksong/comments/1wygt7k/87_potential_days_to_hollow_knight_silksong_sea/)
+- [Citadel just built Verdania section in memorium to mock them 😭 If you don't want it to be remembered just don't build it 😭 I'm crine](https://www.reddit.com/r/Silksong/comments/1wy9kgj/citadel_just_built_verdania_section_in_memorium/)
