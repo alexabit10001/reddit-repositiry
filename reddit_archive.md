@@ -2920,3 +2920,11 @@
 - ["Jesse, for what reason did you call me here?"](https://www.reddit.com/r/Silksong/comments/1wy4u5p/jesse_for_what_reason_did_you_call_me_here/)
 - [87 Potential days to Hollow Knight: Silksong - Sea of Sorrow release art by LiaAmethyst](https://www.reddit.com/r/Silksong/comments/1wygt7k/87_potential_days_to_hollow_knight_silksong_sea/)
 - [Citadel just built Verdania section in memorium to mock them 😭 If you don't want it to be remembered just don't build it 😭 I'm crine](https://www.reddit.com/r/Silksong/comments/1wy9kgj/citadel_just_built_verdania_section_in_memorium/)
+
+## 2026-10-07
+### r/Silksong — hot (day)
+- [they added hollow knight and freddy fazber in fortnite](https://www.reddit.com/r/Silksong/comments/1wz86jz/they_added_hollow_knight_and_freddy_fazber_in/)
+- [Nightmare (art by @Wiispur)](https://www.reddit.com/r/Silksong/comments/1wzenva/nightmare_art_by_wiispur/)
+- [Why is she named "Hornet"? (art by @MMelody87)](https://www.reddit.com/r/Silksong/comments/1wz209b/why_is_she_named_hornet_art_by_mmelody87/)
+- [There are unused sprites of Deep Docks enemies without their helmets.](https://www.reddit.com/r/Silksong/comments/1wzinaj/there_are_unused_sprites_of_deep_docks_enemies/)
+- ["its time for your third lesson"](https://www.reddit.com/r/Silksong/comments/1wyz2ni/its_time_for_your_third_lesson/)
