@@ -2928,3 +2928,11 @@
 - [Why is she named "Hornet"? (art by @MMelody87)](https://www.reddit.com/r/Silksong/comments/1wz209b/why_is_she_named_hornet_art_by_mmelody87/)
 - [There are unused sprites of Deep Docks enemies without their helmets.](https://www.reddit.com/r/Silksong/comments/1wzinaj/there_are_unused_sprites_of_deep_docks_enemies/)
 - ["its time for your third lesson"](https://www.reddit.com/r/Silksong/comments/1wyz2ni/its_time_for_your_third_lesson/)
+
+## 2026-10-08
+### r/Silksong — hot (day)
+- [Bro don't know he will be important in the future and save the world](https://www.reddit.com/r/Silksong/comments/1wzsxc3/bro_dont_know_he_will_be_important_in_the_future/)
+- [Team Cherry (or only Leth) is going to PAX!](https://www.reddit.com/r/Silksong/comments/1x08kxv/team_cherry_or_only_leth_is_going_to_pax/)
+- [High art right here](https://www.reddit.com/r/Silksong/comments/1x0czvz/high_art_right_here/)
+- [Guys is this it?](https://www.reddit.com/r/Silksong/comments/1x07khj/guys_is_this_it/)
+- [William Pellen tweets for the first time in over a month](https://www.reddit.com/r/Silksong/comments/1wzt4j5/william_pellen_tweets_for_the_first_time_in_over/)
