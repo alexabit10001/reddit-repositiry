@@ -2936,3 +2936,11 @@
 - [High art right here](https://www.reddit.com/r/Silksong/comments/1x0czvz/high_art_right_here/)
 - [Guys is this it?](https://www.reddit.com/r/Silksong/comments/1x07khj/guys_is_this_it/)
 - [William Pellen tweets for the first time in over a month](https://www.reddit.com/r/Silksong/comments/1wzt4j5/william_pellen_tweets_for_the_first_time_in_over/)
+
+## 2026-10-09
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- ["Thank you, Team Cherry, for inventing lesbians" (art by @Zixzs321)](https://www.reddit.com/r/Silksong/comments/1x15nnr/thank_you_team_cherry_for_inventing_lesbians_art/)
+- [Bacon Bugs (Lesbian Day art by @peache_bo and @ayalace_)](https://www.reddit.com/r/Silksong/comments/1x0x07t/bacon_bugs_lesbian_day_art_by_peache_bo_and/)
+- [Hey gang, just met Team Cherry at PAX AUS; blog post is apparently planned for next week.](https://www.reddit.com/r/Silksong/comments/1x0x2dx/hey_gang_just_met_team_cherry_at_pax_aus_blog/)
+- [HAPPY INTERNATIONAL LESBIAN DAY!](https://www.reddit.com/r/Silksong/comments/1x0qieb/happy_international_lesbian_day/)
