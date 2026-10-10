@@ -2944,3 +2944,11 @@
 - [Bacon Bugs (Lesbian Day art by @peache_bo and @ayalace_)](https://www.reddit.com/r/Silksong/comments/1x0x07t/bacon_bugs_lesbian_day_art_by_peache_bo_and/)
 - [Hey gang, just met Team Cherry at PAX AUS; blog post is apparently planned for next week.](https://www.reddit.com/r/Silksong/comments/1x0x2dx/hey_gang_just_met_team_cherry_at_pax_aus_blog/)
 - [HAPPY INTERNATIONAL LESBIAN DAY!](https://www.reddit.com/r/Silksong/comments/1x0qieb/happy_international_lesbian_day/)
+
+## 2026-10-10
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- [answer the question hornet](https://www.reddit.com/r/Silksong/comments/1x1osyt/answer_the_question_hornet/)
+- [Three years ago I quit my job to develop my own metroidvania](https://www.reddit.com/r/Silksong/comments/1x1s4o0/three_years_ago_i_quit_my_job_to_develop_my_own/)
+- [The DLC is literally perfect, just tested it at #PAXAUS2026 👍🔥](https://www.reddit.com/r/Silksong/comments/1x1hrj5/the_dlc_is_literally_perfect_just_tested_it_at/)
+- [90% of silksong dev time was spent handcrafting the squatscraw AI for maximum player ragebait](https://www.reddit.com/r/Silksong/comments/1x1er8w/90_of_silksong_dev_time_was_spent_handcrafting/)
