@@ -2952,3 +2952,11 @@
 - [Three years ago I quit my job to develop my own metroidvania](https://www.reddit.com/r/Silksong/comments/1x1s4o0/three_years_ago_i_quit_my_job_to_develop_my_own/)
 - [The DLC is literally perfect, just tested it at #PAXAUS2026 👍🔥](https://www.reddit.com/r/Silksong/comments/1x1hrj5/the_dlc_is_literally_perfect_just_tested_it_at/)
 - [90% of silksong dev time was spent handcrafting the squatscraw AI for maximum player ragebait](https://www.reddit.com/r/Silksong/comments/1x1er8w/90_of_silksong_dev_time_was_spent_handcrafting/)
+
+## 2026-10-11
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- [Smol Hornet (art by @peache_bo)](https://www.reddit.com/r/Silksong/comments/1x2swe9/smol_hornet_art_by_peache_bo/)
+- [Halloween Lace (art by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1x2er3c/halloween_lace_art_by_17hornet77987/)
+- [Needolin glitch](https://www.reddit.com/r/Silksong/comments/1x2oyt5/needolin_glitch/)
+- [HEY! STAY AWAY FROM MY LITTLE SISTER!](https://www.reddit.com/r/Silksong/comments/1x2vkjx/hey_stay_away_from_my_little_sister/)
