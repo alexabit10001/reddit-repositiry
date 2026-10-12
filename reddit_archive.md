@@ -2960,3 +2960,11 @@
 - [Halloween Lace (art by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1x2er3c/halloween_lace_art_by_17hornet77987/)
 - [Needolin glitch](https://www.reddit.com/r/Silksong/comments/1x2oyt5/needolin_glitch/)
 - [HEY! STAY AWAY FROM MY LITTLE SISTER!](https://www.reddit.com/r/Silksong/comments/1x2vkjx/hey_stay_away_from_my_little_sister/)
+
+## 2026-10-12
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- [Do you see it too?](https://www.reddit.com/r/Silksong/comments/1x3izac/do_you_see_it_too/)
+- [11/10 game, Queen is kinda cute](https://www.reddit.com/r/Silksong/comments/1x32a38/1110_game_queen_is_kinda_cute/)
+- [Who is this Child Wielding Needle Shakra is talking about? Why do they never show up?](https://www.reddit.com/r/Silksong/comments/1x3g69m/who_is_this_child_wielding_needle_shakra_is/)
+- [Most useful backflip seen in all of Pharloom](https://www.reddit.com/r/Silksong/comments/1x3180t/most_useful_backflip_seen_in_all_of_pharloom/)
