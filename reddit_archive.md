@@ -2968,3 +2968,11 @@
 - [11/10 game, Queen is kinda cute](https://www.reddit.com/r/Silksong/comments/1x32a38/1110_game_queen_is_kinda_cute/)
 - [Who is this Child Wielding Needle Shakra is talking about? Why do they never show up?](https://www.reddit.com/r/Silksong/comments/1x3g69m/who_is_this_child_wielding_needle_shakra_is/)
 - [Most useful backflip seen in all of Pharloom](https://www.reddit.com/r/Silksong/comments/1x3180t/most_useful_backflip_seen_in_all_of_pharloom/)
+
+## 2026-10-13
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- [Silk ost tierlist (kinda)](https://www.reddit.com/r/Silksong/comments/1x4hr85/silk_ost_tierlist_kinda/)
+- [Hornet in a pretty dress (art by @Cony_D1)](https://www.reddit.com/r/Silksong/comments/1x416mw/hornet_in_a_pretty_dress_art_by_cony_d1/)
+- [80 POTENTIAL days to Hollow Knight: Silksong - Sea of Sorrow art by algebutter](https://www.reddit.com/r/Silksong/comments/1x4be2g/80_potential_days_to_hollow_knight_silksong_sea/)
+- [Lace and Hornet, but they're Isopods (art by @mothific)](https://www.reddit.com/r/Silksong/comments/1x4lbyd/lace_and_hornet_but_theyre_isopods_art_by_mothific/)
