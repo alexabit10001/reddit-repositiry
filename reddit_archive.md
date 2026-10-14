@@ -2976,3 +2976,11 @@
 - [Hornet in a pretty dress (art by @Cony_D1)](https://www.reddit.com/r/Silksong/comments/1x416mw/hornet_in_a_pretty_dress_art_by_cony_d1/)
 - [80 POTENTIAL days to Hollow Knight: Silksong - Sea of Sorrow art by algebutter](https://www.reddit.com/r/Silksong/comments/1x4be2g/80_potential_days_to_hollow_knight_silksong_sea/)
 - [Lace and Hornet, but they're Isopods (art by @mothific)](https://www.reddit.com/r/Silksong/comments/1x4lbyd/lace_and_hornet_but_theyre_isopods_art_by_mothific/)
+
+## 2026-10-14
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- [I FINALLY GOT 125%](https://www.reddit.com/r/Silksong/comments/1x547bw/i_finally_got_125/)
+- [Getting back into some Ink Sketching](https://www.reddit.com/r/Silksong/comments/1x5ajac/getting_back_into_some_ink_sketching/)
+- [Guys, I found Leaf Glider's real life reference](https://www.reddit.com/r/Silksong/comments/1x4wvhw/guys_i_found_leaf_gliders_real_life_reference/)
+- [Insane theory: There will be something related to Sea of Sorrow on October 25th](https://www.reddit.com/r/Silksong/comments/1x5dxuc/insane_theory_there_will_be_something_related_to/)
