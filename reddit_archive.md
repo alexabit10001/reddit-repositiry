@@ -2984,3 +2984,11 @@
 - [Getting back into some Ink Sketching](https://www.reddit.com/r/Silksong/comments/1x5ajac/getting_back_into_some_ink_sketching/)
 - [Guys, I found Leaf Glider's real life reference](https://www.reddit.com/r/Silksong/comments/1x4wvhw/guys_i_found_leaf_gliders_real_life_reference/)
 - [Insane theory: There will be something related to Sea of Sorrow on October 25th](https://www.reddit.com/r/Silksong/comments/1x5dxuc/insane_theory_there_will_be_something_related_to/)
+
+## 2026-10-15
+### r/Silksong — hot (day)
+- [SEA OF SORROW RELEASE DATE](https://www.reddit.com/r/Silksong/comments/1x0w4rr/sea_of_sorrow_release_date/)
+- ["Peaceful Days" (by @ComunicaTa23733)](https://www.reddit.com/r/Silksong/comments/1x61tyf/peaceful_days_by_comunicata23733/)
+- [Widow (art by me)](https://www.reddit.com/r/Silksong/comments/1x5lbtk/widow_art_by_me/)
+- [I have no favorites..](https://www.reddit.com/r/Silksong/comments/1x5vllw/i_have_no_favorites/)
+- [The Hollow knights of Weaveniere... By OffspringerQwQ](https://www.reddit.com/r/Silksong/comments/1x5y9p1/the_hollow_knights_of_weaveniere_by_offspringerqwq/)
