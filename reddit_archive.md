@@ -2992,3 +2992,11 @@
 - [Widow (art by me)](https://www.reddit.com/r/Silksong/comments/1x5lbtk/widow_art_by_me/)
 - [I have no favorites..](https://www.reddit.com/r/Silksong/comments/1x5vllw/i_have_no_favorites/)
 - [The Hollow knights of Weaveniere... By OffspringerQwQ](https://www.reddit.com/r/Silksong/comments/1x5y9p1/the_hollow_knights_of_weaveniere_by_offspringerqwq/)
+
+## 2026-10-16
+### r/Silksong — hot (day)
+- [Outskonged by YouTube](https://www.reddit.com/r/Silksong/comments/1x6sy25/outskonged_by_youtube/)
+- [Beastfly Cooking (art by @koumouby)](https://www.reddit.com/r/Silksong/comments/1x6lsgu/beastfly_cooking_art_by_koumouby/)
+- [Since Sea of Sorrow is now out, what do you guys think of Hungry Soul?](https://www.reddit.com/r/Silksong/comments/1x6ii2l/since_sea_of_sorrow_is_now_out_what_do_you_guys/)
+- [Halloween Hornet and Knight (by @CursedAmbrose)](https://www.reddit.com/r/Silksong/comments/1x6s4b8/halloween_hornet_and_knight_by_cursedambrose/)
+- [I knew this would happen](https://www.reddit.com/r/Silksong/comments/1x6w8fu/i_knew_this_would_happen/)
