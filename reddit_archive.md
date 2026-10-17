@@ -3000,3 +3000,11 @@
 - [Since Sea of Sorrow is now out, what do you guys think of Hungry Soul?](https://www.reddit.com/r/Silksong/comments/1x6ii2l/since_sea_of_sorrow_is_now_out_what_do_you_guys/)
 - [Halloween Hornet and Knight (by @CursedAmbrose)](https://www.reddit.com/r/Silksong/comments/1x6s4b8/halloween_hornet_and_knight_by_cursedambrose/)
 - [I knew this would happen](https://www.reddit.com/r/Silksong/comments/1x6w8fu/i_knew_this_would_happen/)
+
+## 2026-10-17
+### r/Silksong — hot (day)
+- [Sibling Hot Springs](https://www.reddit.com/r/Silksong/comments/1x7l8qg/sibling_hot_springs/)
+- [5th Simple Key found](https://www.reddit.com/r/Silksong/comments/1x7ob3g/5th_simple_key_found/)
+- [Shakra Ink Sketch](https://www.reddit.com/r/Silksong/comments/1x7twty/shakra_ink_sketch/)
+- [What a rebel... (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1x7gigm/what_a_rebel_art_by_red_krabo/)
+- [Warm Shawkra yuri #silktober day 16](https://www.reddit.com/r/Silksong/comments/1x7t9pj/warm_shawkra_yuri_silktober_day_16/)
