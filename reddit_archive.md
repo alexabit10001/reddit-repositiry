@@ -3008,3 +3008,11 @@
 - [Shakra Ink Sketch](https://www.reddit.com/r/Silksong/comments/1x7twty/shakra_ink_sketch/)
 - [What a rebel... (art by @Red_Krabo)](https://www.reddit.com/r/Silksong/comments/1x7gigm/what_a_rebel_art_by_red_krabo/)
 - [Warm Shawkra yuri #silktober day 16](https://www.reddit.com/r/Silksong/comments/1x7t9pj/warm_shawkra_yuri_silktober_day_16/)
+
+## 2026-10-18
+### r/Silksong — hot (day)
+- [Sea of sorrow cancelled](https://www.reddit.com/r/Silksong/comments/1x88ly1/sea_of_sorrow_cancelled/)
+- [Guys, what happened to this subreddit?](https://www.reddit.com/r/Silksong/comments/1x8o499/guys_what_happened_to_this_subreddit/)
+- [MY USERNAME ISNT WHAT IT LOOKS LIKE](https://www.reddit.com/r/Silksong/comments/1x8enn1/my_username_isnt_what_it_looks_like/)
+- [Why haven't I see anyone marry Lace? Like, it's way faster than trying to beat her.](https://www.reddit.com/r/Silksong/comments/1x85n8e/why_havent_i_see_anyone_marry_lace_like_its_way/)
+- [Why Is "IT" Blue?](https://www.reddit.com/r/Silksong/comments/1x8nwln/why_is_it_blue/)
