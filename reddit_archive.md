@@ -3016,3 +3016,11 @@
 - [MY USERNAME ISNT WHAT IT LOOKS LIKE](https://www.reddit.com/r/Silksong/comments/1x8enn1/my_username_isnt_what_it_looks_like/)
 - [Why haven't I see anyone marry Lace? Like, it's way faster than trying to beat her.](https://www.reddit.com/r/Silksong/comments/1x85n8e/why_havent_i_see_anyone_marry_lace_like_its_way/)
 - [Why Is "IT" Blue?](https://www.reddit.com/r/Silksong/comments/1x8nwln/why_is_it_blue/)
+
+## 2026-10-19
+### r/Silksong — hot (day)
+- [Claim your "I was here" button!! #SeaOfSorrow21Oct](https://www.reddit.com/r/Silksong/comments/1x9f1kh/claim_your_i_was_here_button_seaofsorrow21oct/)
+- [Grandmother Silk by Divine shikigami](https://www.reddit.com/r/Silksong/comments/1x95h0z/grandmother_silk_by_divine_shikigami/)
+- [What is wrong with her!?](https://www.reddit.com/r/Silksong/comments/1x8wzsm/what_is_wrong_with_her/)
+- [My wife recreated The Map of Pharloom (original by Ryukisensei3)](https://www.reddit.com/r/Silksong/comments/1x9a4os/my_wife_recreated_the_map_of_pharloom_original_by/)
+- [This guy's giving me everything for free, i don't know why but I'm not mad](https://www.reddit.com/r/Silksong/comments/1x8yx3c/this_guys_giving_me_everything_for_free_i_dont/)
