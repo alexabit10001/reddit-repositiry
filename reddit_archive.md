@@ -3024,3 +3024,11 @@
 - [What is wrong with her!?](https://www.reddit.com/r/Silksong/comments/1x8wzsm/what_is_wrong_with_her/)
 - [My wife recreated The Map of Pharloom (original by Ryukisensei3)](https://www.reddit.com/r/Silksong/comments/1x9a4os/my_wife_recreated_the_map_of_pharloom_original_by/)
 - [This guy's giving me everything for free, i don't know why but I'm not mad](https://www.reddit.com/r/Silksong/comments/1x8yx3c/this_guys_giving_me_everything_for_free_i_dont/)
+
+## 2026-10-20
+### r/Silksong — hot (day)
+- [[OFFICIAL INTERVIEW] 1 hour interview with Christopher Larkin about composing Hollow Knight: Silksong's soundtrack, conducted earlier this month. Video strangely only has ≈300 views as of posting.](https://www.reddit.com/r/Silksong/comments/1xa7pqs/official_interview_1_hour_interview_with/)
+- ["My little sister turned into a flower" "That's rough buddy" (art by @Mint_Chao205)](https://www.reddit.com/r/Silksong/comments/1xadqng/my_little_sister_turned_into_a_flower_thats_rough/)
+- ["Back home from school"; young Hornet modern AU (by @MMelody87)](https://www.reddit.com/r/Silksong/comments/1x9wy7h/back_home_from_school_young_hornet_modern_au_by/)
+- [Gurr the Outcast (Art by AchesOfSlowDecay)](https://www.reddit.com/r/Silksong/comments/1x9zh7c/gurr_the_outcast_art_by_achesofslowdecay/)
+- [Next month is going to be insane for gaming](https://www.reddit.com/r/Silksong/comments/1xa1qwa/next_month_is_going_to_be_insane_for_gaming/)
