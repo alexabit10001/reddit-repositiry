@@ -3032,3 +3032,11 @@
 - ["Back home from school"; young Hornet modern AU (by @MMelody87)](https://www.reddit.com/r/Silksong/comments/1x9wy7h/back_home_from_school_young_hornet_modern_au_by/)
 - [Gurr the Outcast (Art by AchesOfSlowDecay)](https://www.reddit.com/r/Silksong/comments/1x9zh7c/gurr_the_outcast_art_by_achesofslowdecay/)
 - [Next month is going to be insane for gaming](https://www.reddit.com/r/Silksong/comments/1xa1qwa/next_month_is_going_to_be_insane_for_gaming/)
+
+## 2026-10-21
+### r/Silksong — hot (day)
+- [Hornet get down from there](https://www.reddit.com/r/Silksong/comments/1xaursw/hornet_get_down_from_there/)
+- [Vampire Hornet (by @Watfell)](https://www.reddit.com/r/Silksong/comments/1xb6lcs/vampire_hornet_by_watfell/)
+- [Day 52 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1xaxngj/day_52_of_beating_the_tutorial_every_day_until_i/)
+- [Sea of Sorrow first look!](https://www.reddit.com/r/Silksong/comments/1xb06g9/sea_of_sorrow_first_look/)
+- [Welcome to the Backrooms, Hornet (by @foxilixo)](https://www.reddit.com/r/Silksong/comments/1xb3awm/welcome_to_the_backrooms_hornet_by_foxilixo/)
