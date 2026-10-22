@@ -3040,3 +3040,11 @@
 - [Day 52 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1xaxngj/day_52_of_beating_the_tutorial_every_day_until_i/)
 - [Sea of Sorrow first look!](https://www.reddit.com/r/Silksong/comments/1xb06g9/sea_of_sorrow_first_look/)
 - [Welcome to the Backrooms, Hornet (by @foxilixo)](https://www.reddit.com/r/Silksong/comments/1xb3awm/welcome_to_the_backrooms_hornet_by_foxilixo/)
+
+## 2026-10-22
+### r/Silksong — hot (day)
+- [Well, that was easy](https://www.reddit.com/r/Silksong/comments/1xbp6nl/well_that_was_easy/)
+- [It's not your imagination. Silkposts from many frequent posters are becoming lower effort, less original, and frankly less funny.](https://www.reddit.com/r/Silksong/comments/1xbot7q/its_not_your_imagination_silkposts_from_many/)
+- [Grand Mother Silk Redesign [OC]](https://www.reddit.com/r/Silksong/comments/1xc1njl/grand_mother_silk_redesign_oc/)
+- [FYI: Objectively speaking; Team Cherry leaked the date of both the Switch 2 reveal and showcase](https://www.reddit.com/r/Silksong/comments/1xc08cy/fyi_objectively_speaking_team_cherry_leaked_the/)
+- [Sea of sorrow dlc map leaked](https://www.reddit.com/r/Silksong/comments/1xbgetk/sea_of_sorrow_dlc_map_leaked/)
