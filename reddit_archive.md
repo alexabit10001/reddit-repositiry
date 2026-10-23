@@ -3048,3 +3048,11 @@
 - [Grand Mother Silk Redesign [OC]](https://www.reddit.com/r/Silksong/comments/1xc1njl/grand_mother_silk_redesign_oc/)
 - [FYI: Objectively speaking; Team Cherry leaked the date of both the Switch 2 reveal and showcase](https://www.reddit.com/r/Silksong/comments/1xc08cy/fyi_objectively_speaking_team_cherry_leaked_the/)
 - [Sea of sorrow dlc map leaked](https://www.reddit.com/r/Silksong/comments/1xbgetk/sea_of_sorrow_dlc_map_leaked/)
+
+## 2026-10-23
+### r/Silksong — hot (day)
+- [70 POTENTIAL DAYS to Hollow Knight: Silksong - Sea of Sorrow art by HeroSmacker](https://www.reddit.com/r/Silksong/comments/1xctiz3/70_potential_days_to_hollow_knight_silksong_sea/)
+- [Maid Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1xcp377/maid_lace_by_17hornet77987/)
+- [Just sibling things (Art by ExplosivePearl)](https://www.reddit.com/r/Silksong/comments/1xcjawi/just_sibling_things_art_by_explosivepearl/)
+- [Honestly I gotta applaud TC, Lace's character design is so simple yet so good](https://www.reddit.com/r/Silksong/comments/1xcsiut/honestly_i_gotta_applaud_tc_laces_character/)
+- [Moderately useful information: You can farm the spines of the Hokers without killing them](https://www.reddit.com/r/Silksong/comments/1xco9kv/moderately_useful_information_you_can_farm_the/)
