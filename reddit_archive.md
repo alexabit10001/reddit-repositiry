@@ -3056,3 +3056,11 @@
 - [Just sibling things (Art by ExplosivePearl)](https://www.reddit.com/r/Silksong/comments/1xcjawi/just_sibling_things_art_by_explosivepearl/)
 - [Honestly I gotta applaud TC, Lace's character design is so simple yet so good](https://www.reddit.com/r/Silksong/comments/1xcsiut/honestly_i_gotta_applaud_tc_laces_character/)
 - [Moderately useful information: You can farm the spines of the Hokers without killing them](https://www.reddit.com/r/Silksong/comments/1xco9kv/moderately_useful_information_you_can_farm_the/)
+
+## 2026-10-24
+### r/Silksong — hot (day)
+- [Challenging Grand Mother Silk at The Cradle be like:](https://www.reddit.com/r/Silksong/comments/1xdq76q/challenging_grand_mother_silk_at_the_cradle_be/)
+- [Buff Shakra Sketches (by @Boopie1002)](https://www.reddit.com/r/Silksong/comments/1xddisg/buff_shakra_sketches_by_boopie1002/)
+- [Team Cherry logged into Kickstarter yesterday. Didn't back a project.](https://www.reddit.com/r/Silksong/comments/1xdf9l5/team_cherry_logged_into_kickstarter_yesterday/)
+- [I love how team cherries $20 price tag made Nintendo lower their prices of the two most recent games. These games 100% would have been $79.99.](https://www.reddit.com/r/Silksong/comments/1xdu0iw/i_love_how_team_cherries_20_price_tag_made/)
+- [Team cherry cooked!!!](https://www.reddit.com/r/Silksong/comments/1xdo2k8/team_cherry_cooked/)
