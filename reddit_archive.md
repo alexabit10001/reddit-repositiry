@@ -3064,3 +3064,11 @@
 - [Team Cherry logged into Kickstarter yesterday. Didn't back a project.](https://www.reddit.com/r/Silksong/comments/1xdf9l5/team_cherry_logged_into_kickstarter_yesterday/)
 - [I love how team cherries $20 price tag made Nintendo lower their prices of the two most recent games. These games 100% would have been $79.99.](https://www.reddit.com/r/Silksong/comments/1xdu0iw/i_love_how_team_cherries_20_price_tag_made/)
 - [Team cherry cooked!!!](https://www.reddit.com/r/Silksong/comments/1xdo2k8/team_cherry_cooked/)
+
+## 2026-10-25
+### r/Silksong — hot (day)
+- [What do you guys think about the new fast travel?](https://www.reddit.com/r/Silksong/comments/1xe4jhx/what_do_you_guys_think_about_the_new_fast_travel/)
+- [Guys, new Hollow Knight DLC is so nice!](https://www.reddit.com/r/Silksong/comments/1xelfgg/guys_new_hollow_knight_dlc_is_so_nice/)
+- [3 years ago... are they a prophet?](https://www.reddit.com/r/Silksong/comments/1xea2qn/3_years_ago_are_they_a_prophet/)
+- [Holy shit new Sea of Sorrow screenshots!!! Sharpe is back!!!!](https://www.reddit.com/r/Silksong/comments/1xecxog/holy_shit_new_sea_of_sorrow_screenshots_sharpe_is/)
+- [Shaw SHAW SHAWWW !](https://www.reddit.com/r/Silksong/comments/1xegrmn/shaw_shaw_shawww/)
