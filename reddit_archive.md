@@ -3072,3 +3072,11 @@
 - [3 years ago... are they a prophet?](https://www.reddit.com/r/Silksong/comments/1xea2qn/3_years_ago_are_they_a_prophet/)
 - [Holy shit new Sea of Sorrow screenshots!!! Sharpe is back!!!!](https://www.reddit.com/r/Silksong/comments/1xecxog/holy_shit_new_sea_of_sorrow_screenshots_sharpe_is/)
 - [Shaw SHAW SHAWWW !](https://www.reddit.com/r/Silksong/comments/1xegrmn/shaw_shaw_shawww/)
+
+## 2026-10-26
+### r/Silksong — hot (day)
+- [My friends did not understand my hype](https://www.reddit.com/r/Silksong/comments/1xey0x3/my_friends_did_not_understand_my_hype/)
+- [Lace and Hornet react to each other's Halloween costumes (by @MMelody87)](https://www.reddit.com/r/Silksong/comments/1xfed6x/lace_and_hornet_react_to_each_others_halloween/)
+- [Silksong-themed art thumbnail entry](https://www.reddit.com/r/Silksong/comments/1xf8g9p/silksongthemed_art_thumbnail_entry/)
+- [Uniform Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1xf5qb1/uniform_lace_by_17hornet77987/)
+- [Why did Hornet have to do this!?](https://www.reddit.com/r/Silksong/comments/1xeysma/why_did_hornet_have_to_do_this/)
