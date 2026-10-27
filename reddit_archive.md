@@ -3080,3 +3080,11 @@
 - [Silksong-themed art thumbnail entry](https://www.reddit.com/r/Silksong/comments/1xf8g9p/silksongthemed_art_thumbnail_entry/)
 - [Uniform Lace (by @17Hornet77987)](https://www.reddit.com/r/Silksong/comments/1xf5qb1/uniform_lace_by_17hornet77987/)
 - [Why did Hornet have to do this!?](https://www.reddit.com/r/Silksong/comments/1xeysma/why_did_hornet_have_to_do_this/)
+
+## 2026-10-27
+### r/Silksong — hot (day)
+- [I ship it (Art by te0bengg)](https://www.reddit.com/r/Silksong/comments/1xfzsk5/i_ship_it_art_by_te0bengg/)
+- [We waited 8 years for this⁈](https://www.reddit.com/r/Silksong/comments/1xfvgml/we_waited_8_years_for_this/)
+- [I drew Hornet!!](https://www.reddit.com/r/Silksong/comments/1xg3weg/i_drew_hornet/)
+- [My son wanted me to share his drawing with you all](https://www.reddit.com/r/Silksong/comments/1xgc2t4/my_son_wanted_me_to_share_his_drawing_with_you_all/)
+- [Aknids are so cute! 💚](https://www.reddit.com/r/Silksong/comments/1xg5u86/aknids_are_so_cute/)
