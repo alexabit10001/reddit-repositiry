@@ -3088,3 +3088,11 @@
 - [I drew Hornet!!](https://www.reddit.com/r/Silksong/comments/1xg3weg/i_drew_hornet/)
 - [My son wanted me to share his drawing with you all](https://www.reddit.com/r/Silksong/comments/1xgc2t4/my_son_wanted_me_to_share_his_drawing_with_you_all/)
 - [Aknids are so cute! 💚](https://www.reddit.com/r/Silksong/comments/1xg5u86/aknids_are_so_cute/)
+
+## 2026-10-28
+### r/Silksong — hot (day)
+- [GUYS SEA OF SORROW WILL BE ANNOUNCED SOON](https://www.reddit.com/r/Silksong/comments/1xgt1bi/guys_sea_of_sorrow_will_be_announced_soon/)
+- [What’s the Most Iconic Bench in the Game?](https://www.reddit.com/r/Silksong/comments/1xgxbht/whats_the_most_iconic_bench_in_the_game/)
+- [Shakra Back Muscles (by @TIC4_)](https://www.reddit.com/r/Silksong/comments/1xh2zoc/shakra_back_muscles_by_tic4/)
+- [What if blue lake was green](https://www.reddit.com/r/Silksong/comments/1xh7gaq/what_if_blue_lake_was_green/)
+- [ON EVERYBODY’S SOULS IN THIS SUBREDDIT SEA OF SORROW WILL BE ANNOUNCED HERE](https://www.reddit.com/r/Silksong/comments/1xh36ku/on_everybodys_souls_in_this_subreddit_sea_of/)
