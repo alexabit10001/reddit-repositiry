@@ -3096,3 +3096,11 @@
 - [Shakra Back Muscles (by @TIC4_)](https://www.reddit.com/r/Silksong/comments/1xh2zoc/shakra_back_muscles_by_tic4/)
 - [What if blue lake was green](https://www.reddit.com/r/Silksong/comments/1xh7gaq/what_if_blue_lake_was_green/)
 - [ON EVERYBODY’S SOULS IN THIS SUBREDDIT SEA OF SORROW WILL BE ANNOUNCED HERE](https://www.reddit.com/r/Silksong/comments/1xh36ku/on_everybodys_souls_in_this_subreddit_sea_of/)
+
+## 2026-10-29
+### r/Silksong — hot (day)
+- [SEA OF SORROW WAS ANNOUNCED AT INDIEWORLD](https://www.reddit.com/r/Silksong/comments/1xhpdci/sea_of_sorrow_was_announced_at_indieworld/)
+- [[MOD POST] It is with a heavy heart that we announce that the "Silkpost" flair will soon be retired.](https://www.reddit.com/r/Silksong/comments/1xi7npx/mod_post_it_is_with_a_heavy_heart_that_we/)
+- [GUYS SEA OF SORROW IS REALLLLLLLLLLLLLLLLLL](https://www.reddit.com/r/Silksong/comments/1xhpekb/guys_sea_of_sorrow_is_reallllllllllllllllll/)
+- [SEA OF SORROW TRAILER AT DIRECT](https://www.reddit.com/r/Silksong/comments/1xhpcve/sea_of_sorrow_trailer_at_direct/)
+- [Hornet's special plushie (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1xhrqqp/hornets_special_plushie_by_adouukoi/)
