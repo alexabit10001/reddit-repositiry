@@ -3104,3 +3104,11 @@
 - [GUYS SEA OF SORROW IS REALLLLLLLLLLLLLLLLLL](https://www.reddit.com/r/Silksong/comments/1xhpekb/guys_sea_of_sorrow_is_reallllllllllllllllll/)
 - [SEA OF SORROW TRAILER AT DIRECT](https://www.reddit.com/r/Silksong/comments/1xhpcve/sea_of_sorrow_trailer_at_direct/)
 - [Hornet's special plushie (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1xhrqqp/hornets_special_plushie_by_adouukoi/)
+
+## 2026-10-30
+### r/Silksong — hot (day)
+- [NEW LEAKS OF SEA OF SORROW](https://www.reddit.com/r/Silksong/comments/1xio20a/new_leaks_of_sea_of_sorrow/)
+- [Sea of Sorrow leak (video evidence)](https://www.reddit.com/r/Silksong/comments/1xii3ik/sea_of_sorrow_leak_video_evidence/)
+- [Help a brother out, how do you beat Red Sister?](https://www.reddit.com/r/Silksong/comments/1xievo5/help_a_brother_out_how_do_you_beat_red_sister/)
+- [The game's 2026 release window officially postponed to 2027.](https://www.reddit.com/r/Silksong/comments/1xilsbd/the_games_2026_release_window_officially/)
+- [Tell me who's upvoting them too](https://www.reddit.com/r/Silksong/comments/1xiol1k/tell_me_whos_upvoting_them_too/)
