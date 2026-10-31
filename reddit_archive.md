@@ -3112,3 +3112,11 @@
 - [Help a brother out, how do you beat Red Sister?](https://www.reddit.com/r/Silksong/comments/1xievo5/help_a_brother_out_how_do_you_beat_red_sister/)
 - [The game's 2026 release window officially postponed to 2027.](https://www.reddit.com/r/Silksong/comments/1xilsbd/the_games_2026_release_window_officially/)
 - [Tell me who's upvoting them too](https://www.reddit.com/r/Silksong/comments/1xiol1k/tell_me_whos_upvoting_them_too/)
+
+## 2026-10-31
+### r/Silksong — hot (day)
+- [Headcanon: Lace is light as a feather (by @ddayning)](https://www.reddit.com/r/Silksong/comments/1xjnj84/headcanon_lace_is_light_as_a_feather_by_ddayning/)
+- [After a long day of work..](https://www.reddit.com/r/Silksong/comments/1xje9is/after_a_long_day_of_work/)
+- [⚠️Semi spoiler alert⚠️ , Leaked video of scrapped Main menu design for potential Silksong DLC](https://www.reddit.com/r/Silksong/comments/1xjm58d/semi_spoiler_alert_leaked_video_of_scrapped_main/)
+- [How many of y'all missed this scene?](https://www.reddit.com/r/Silksong/comments/1xjagka/how_many_of_yall_missed_this_scene/)
+- [I think I see a hornet](https://www.reddit.com/r/Silksong/comments/1xjdml3/i_think_i_see_a_hornet/)
