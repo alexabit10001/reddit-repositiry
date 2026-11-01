@@ -3120,3 +3120,11 @@
 - [⚠️Semi spoiler alert⚠️ , Leaked video of scrapped Main menu design for potential Silksong DLC](https://www.reddit.com/r/Silksong/comments/1xjm58d/semi_spoiler_alert_leaked_video_of_scrapped_main/)
 - [How many of y'all missed this scene?](https://www.reddit.com/r/Silksong/comments/1xjagka/how_many_of_yall_missed_this_scene/)
 - [I think I see a hornet](https://www.reddit.com/r/Silksong/comments/1xjdml3/i_think_i_see_a_hornet/)
+
+## 2026-11-01
+### r/Silksong — hot (day)
+- [I mean, her head shape was just perfect for it](https://www.reddit.com/r/Silksong/comments/1xkf9cu/i_mean_her_head_shape_was_just_perfect_for_it/)
+- [OFFICIALLY, Sea of Sorrow is now set to release THIS MONTH OR NEXT MONTH. Don't lose out hope or become doubters; it's soon!](https://www.reddit.com/r/Silksong/comments/1xkijyg/officially_sea_of_sorrow_is_now_set_to_release/)
+- [Back by popular demand. You can only blame yourself](https://www.reddit.com/r/Silksong/comments/1xkjy4l/back_by_popular_demand_you_can_only_blame_yourself/)
+- [Halloween Lace and Hornet (by @salamitown)](https://www.reddit.com/r/Silksong/comments/1xkruxx/halloween_lace_and_hornet_by_salamitown/)
+- [I don't like this self insert boss :(](https://www.reddit.com/r/Silksong/comments/1xkgeoa/i_dont_like_this_self_insert_boss/)
