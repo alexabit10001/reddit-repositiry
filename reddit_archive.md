@@ -3128,3 +3128,11 @@
 - [Back by popular demand. You can only blame yourself](https://www.reddit.com/r/Silksong/comments/1xkjy4l/back_by_popular_demand_you_can_only_blame_yourself/)
 - [Halloween Lace and Hornet (by @salamitown)](https://www.reddit.com/r/Silksong/comments/1xkruxx/halloween_lace_and_hornet_by_salamitown/)
 - [I don't like this self insert boss :(](https://www.reddit.com/r/Silksong/comments/1xkgeoa/i_dont_like_this_self_insert_boss/)
+
+## 2026-11-02
+### r/Silksong — hot (day)
+- [Sea of Sorrow DLC delay announced 😔](https://www.reddit.com/r/Silksong/comments/1xl8wvo/sea_of_sorrow_dlc_delay_announced/)
+- [Why is the fast travel so slow?](https://www.reddit.com/r/Silksong/comments/1xl5uzp/why_is_the_fast_travel_so_slow/)
+- [A true skonger doesn't need to cosplay seriously, knight](https://www.reddit.com/r/Silksong/comments/1xla2of/a_true_skonger_doesnt_need_to_cosplay_seriously/)
+- [Leth is asking how indie gamers mostly find out about new games. Is he trying to figure out how best to announce DLC?](https://www.reddit.com/r/Silksong/comments/1xlc0u5/leth_is_asking_how_indie_gamers_mostly_find_out/)
+- ["Scariest of them all" (Halloween comic by @PhilliaEsaya)](https://www.reddit.com/r/Silksong/comments/1xl540t/scariest_of_them_all_halloween_comic_by/)
