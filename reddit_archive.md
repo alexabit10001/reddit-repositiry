@@ -3136,3 +3136,11 @@
 - [A true skonger doesn't need to cosplay seriously, knight](https://www.reddit.com/r/Silksong/comments/1xla2of/a_true_skonger_doesnt_need_to_cosplay_seriously/)
 - [Leth is asking how indie gamers mostly find out about new games. Is he trying to figure out how best to announce DLC?](https://www.reddit.com/r/Silksong/comments/1xlc0u5/leth_is_asking_how_indie_gamers_mostly_find_out/)
 - ["Scariest of them all" (Halloween comic by @PhilliaEsaya)](https://www.reddit.com/r/Silksong/comments/1xl540t/scariest_of_them_all_halloween_comic_by/)
+
+## 2026-11-03
+### r/Silksong — hot (day)
+- [Lover's Spat (by @adouukoi)](https://www.reddit.com/r/Silksong/comments/1xlzg6t/lovers_spat_by_adouukoi/)
+- [Finally, after countless tries, I finally beat her!!](https://www.reddit.com/r/Silksong/comments/1xlxwic/finally_after_countless_tries_i_finally_beat_her/)
+- [SEA OF SORROW IS LISTED FOR NOVEMBER 26 IN THE "THIRD-PARTY CONTENT" SECTION THIS IS NOT A DRILL.](https://www.reddit.com/r/Silksong/comments/1xlzngt/sea_of_sorrow_is_listed_for_november_26_in_the/)
+- [Coral steps that got cut](https://www.reddit.com/r/Silksong/comments/1xm9f6z/coral_steps_that_got_cut/)
+- [Gf channeling her animal instinct at the halloween party and me unable to tilt my shell lol](https://www.reddit.com/r/Silksong/comments/1xmgjo9/gf_channeling_her_animal_instinct_at_the/)
