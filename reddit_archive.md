@@ -3144,3 +3144,11 @@
 - [SEA OF SORROW IS LISTED FOR NOVEMBER 26 IN THE "THIRD-PARTY CONTENT" SECTION THIS IS NOT A DRILL.](https://www.reddit.com/r/Silksong/comments/1xlzngt/sea_of_sorrow_is_listed_for_november_26_in_the/)
 - [Coral steps that got cut](https://www.reddit.com/r/Silksong/comments/1xm9f6z/coral_steps_that_got_cut/)
 - [Gf channeling her animal instinct at the halloween party and me unable to tilt my shell lol](https://www.reddit.com/r/Silksong/comments/1xmgjo9/gf_channeling_her_animal_instinct_at_the/)
+
+## 2026-11-04
+### r/Silksong — hot (day)
+- [Gotta store 'em somehow (by @Imerald_art)](https://www.reddit.com/r/Silksong/comments/1xmwxu2/gotta_store_em_somehow_by_imerald_art/)
+- [THIS IS NOT A DRILL!!!!!!! NEW HOLLOW KNIGHT TITLE REVEALED!!!!!](https://www.reddit.com/r/Silksong/comments/1xn1dyp/this_is_not_a_drill_new_hollow_knight_title/)
+- [Does anyone know what happens if you say no?](https://www.reddit.com/r/Silksong/comments/1xmvru4/does_anyone_know_what_happens_if_you_say_no/)
+- [I SWEAR IF THIS BOSS KILLS ME ONE MORE FUCKING TIME IMA SCRAPT MY FAN ART AND JUST DRAW PORN OF HER](https://www.reddit.com/r/Silksong/comments/1xn217x/i_swear_if_this_boss_kills_me_one_more_fucking/)
+- [In response to that one post](https://www.reddit.com/r/Silksong/comments/1xmydd0/in_response_to_that_one_post/)
