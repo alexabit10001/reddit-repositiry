@@ -3152,3 +3152,11 @@
 - [Does anyone know what happens if you say no?](https://www.reddit.com/r/Silksong/comments/1xmvru4/does_anyone_know_what_happens_if_you_say_no/)
 - [I SWEAR IF THIS BOSS KILLS ME ONE MORE FUCKING TIME IMA SCRAPT MY FAN ART AND JUST DRAW PORN OF HER](https://www.reddit.com/r/Silksong/comments/1xn217x/i_swear_if_this_boss_kills_me_one_more_fucking/)
 - [In response to that one post](https://www.reddit.com/r/Silksong/comments/1xmydd0/in_response_to_that_one_post/)
+
+## 2026-11-05
+### r/Silksong — hot (day)
+- [Bead Check (by @SHL_ShalopaiNEO)](https://www.reddit.com/r/Silksong/comments/1xo6v6a/bead_check_by_shl_shalopaineo/)
+- [Am I prepared enough for this boss?](https://www.reddit.com/r/Silksong/comments/1xnqzai/am_i_prepared_enough_for_this_boss/)
+- [New clothes for Hornet](https://www.reddit.com/r/Silksong/comments/1xnuw1r/new_clothes_for_hornet/)
+- [Day 64 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1xnx754/day_64_of_beating_the_tutorial_every_day_until_i/)
+- [What do you guys think of the new Webhome?](https://www.reddit.com/r/Silksong/comments/1xnjsy3/what_do_you_guys_think_of_the_new_webhome/)
