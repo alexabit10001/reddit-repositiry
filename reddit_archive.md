@@ -3160,3 +3160,11 @@
 - [New clothes for Hornet](https://www.reddit.com/r/Silksong/comments/1xnuw1r/new_clothes_for_hornet/)
 - [Day 64 of beating the Tutorial every day until I can't anymore, but this post's top comment makes tomorrow harder.](https://www.reddit.com/r/Silksong/comments/1xnx754/day_64_of_beating_the_tutorial_every_day_until_i/)
 - [What do you guys think of the new Webhome?](https://www.reddit.com/r/Silksong/comments/1xnjsy3/what_do_you_guys_think_of_the_new_webhome/)
+
+## 2026-11-06
+### r/Silksong — hot (day)
+- [Handmade poseable Hornet figure](https://www.reddit.com/r/Silksong/comments/1xovliz/handmade_poseable_hornet_figure/)
+- [Showing what happens when you get a new Mask while plasmified](https://www.reddit.com/r/Silksong/comments/1xou5qt/showing_what_happens_when_you_get_a_new_mask/)
+- [Buff Shakra (Art by boopie1002)](https://www.reddit.com/r/Silksong/comments/1xohip0/buff_shakra_art_by_boopie1002/)
+- [Seriously? I paid 80$ to have Phantom locked?](https://www.reddit.com/r/Silksong/comments/1xovbou/seriously_i_paid_80_to_have_phantom_locked/)
+- [What is this weaver doing? Couldn't be me.](https://www.reddit.com/r/Silksong/comments/1xof72m/what_is_this_weaver_doing_couldnt_be_me/)
