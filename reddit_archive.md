@@ -3168,3 +3168,11 @@
 - [Buff Shakra (Art by boopie1002)](https://www.reddit.com/r/Silksong/comments/1xohip0/buff_shakra_art_by_boopie1002/)
 - [Seriously? I paid 80$ to have Phantom locked?](https://www.reddit.com/r/Silksong/comments/1xovbou/seriously_i_paid_80_to_have_phantom_locked/)
 - [What is this weaver doing? Couldn't be me.](https://www.reddit.com/r/Silksong/comments/1xof72m/what_is_this_weaver_doing_couldnt_be_me/)
+
+## 2026-11-07
+### r/Silksong — hot (day)
+- [FireB0rn recently posted on his BlueSky that his channel has been marked as "For Kids" by Youtube and the production of videos are stopping](https://www.reddit.com/r/Silksong/comments/1xpohgs/fireb0rn_recently_posted_on_his_bluesky_that_his/)
+- [Someone stole her cloak??](https://www.reddit.com/r/Silksong/comments/1xpuhd6/someone_stole_her_cloak/)
+- [How the hell did they even captured hornet?](https://www.reddit.com/r/Silksong/comments/1xpc60j/how_the_hell_did_they_even_captured_hornet/)
+- [I have this bad feeling about November 19th... Ari please, put the controller down](https://www.reddit.com/r/Silksong/comments/1xpip5e/i_have_this_bad_feeling_about_november_19th_ari/)
+- [Hornet and Lace, art study of Keibeh's drawing](https://www.reddit.com/r/Silksong/comments/1xprfr9/hornet_and_lace_art_study_of_keibehs_drawing/)
