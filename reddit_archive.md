@@ -3176,3 +3176,11 @@
 - [How the hell did they even captured hornet?](https://www.reddit.com/r/Silksong/comments/1xpc60j/how_the_hell_did_they_even_captured_hornet/)
 - [I have this bad feeling about November 19th... Ari please, put the controller down](https://www.reddit.com/r/Silksong/comments/1xpip5e/i_have_this_bad_feeling_about_november_19th_ari/)
 - [Hornet and Lace, art study of Keibeh's drawing](https://www.reddit.com/r/Silksong/comments/1xprfr9/hornet_and_lace_art_study_of_keibehs_drawing/)
+
+## 2026-11-08
+### r/Silksong — hot (day)
+- [⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀](https://www.reddit.com/r/Silksong/comments/1xq6fcw/_/)
+- [I wanna cry : (](https://www.reddit.com/r/Silksong/comments/1xqgs5p/i_wanna_cry/)
+- [Sea of Sorrow officially mentioned in new tweet by Matt Trobbiani (Trobbio's VA), no new release info though. Team Cherry apparently made something for Trobbiani's next game however.](https://www.reddit.com/r/Silksong/comments/1xqa1w1/sea_of_sorrow_officially_mentioned_in_new_tweet/)
+- [Silksong print to go with my Hollow Knight one](https://www.reddit.com/r/Silksong/comments/1xqekju/silksong_print_to_go_with_my_hollow_knight_one/)
+- [Someone stole her cloak??](https://www.reddit.com/r/Silksong/comments/1xpuhd6/someone_stole_her_cloak/)
