@@ -3184,3 +3184,11 @@
 - [Sea of Sorrow officially mentioned in new tweet by Matt Trobbiani (Trobbio's VA), no new release info though. Team Cherry apparently made something for Trobbiani's next game however.](https://www.reddit.com/r/Silksong/comments/1xqa1w1/sea_of_sorrow_officially_mentioned_in_new_tweet/)
 - [Silksong print to go with my Hollow Knight one](https://www.reddit.com/r/Silksong/comments/1xqekju/silksong_print_to_go_with_my_hollow_knight_one/)
 - [Someone stole her cloak??](https://www.reddit.com/r/Silksong/comments/1xpuhd6/someone_stole_her_cloak/)
+
+## 2026-11-09
+### r/Silksong — hot (day)
+- [Matthew "Leth" Griffin confirms Silksong's physical edition is releasing on November 10th](https://www.reddit.com/r/Silksong/comments/1xr8fur/matthew_leth_griffin_confirms_silksongs_physical/)
+- [Hey gang, we went from 2026 to "Coming Soon"](https://www.reddit.com/r/Silksong/comments/1xrc5cc/hey_gang_we_went_from_2026_to_coming_soon/)
+- [Physical copy of silksong images](https://www.reddit.com/r/Silksong/comments/1xrb2wh/physical_copy_of_silksong_images/)
+- [I’m making a pendant for a friend, is this accurate enough?](https://www.reddit.com/r/Silksong/comments/1xr05tu/im_making_a_pendant_for_a_friend_is_this_accurate/)
+- [Grand Daughter, I'm stuck](https://www.reddit.com/r/Silksong/comments/1xqvwvl/grand_daughter_im_stuck/)
