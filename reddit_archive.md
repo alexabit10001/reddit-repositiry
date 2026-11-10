@@ -3192,3 +3192,11 @@
 - [Physical copy of silksong images](https://www.reddit.com/r/Silksong/comments/1xrb2wh/physical_copy_of_silksong_images/)
 - [I’m making a pendant for a friend, is this accurate enough?](https://www.reddit.com/r/Silksong/comments/1xr05tu/im_making_a_pendant_for_a_friend_is_this_accurate/)
 - [Grand Daughter, I'm stuck](https://www.reddit.com/r/Silksong/comments/1xqvwvl/grand_daughter_im_stuck/)
+
+## 2026-11-10
+### r/Silksong — hot (day)
+- [Sea Of Sorrow is OFFICIALLY CONFIRMED for 2026 by Team Cherry!!!!!!!!](https://www.reddit.com/r/Silksong/comments/1xrynz2/sea_of_sorrow_is_officially_confirmed_for_2026_by/)
+- [Spider v Hornet; Insect on Insect violence (by @carterr_draws)](https://www.reddit.com/r/Silksong/comments/1xs2gmi/spider_v_hornet_insect_on_insect_violence_by/)
+- [I figured out the dlc guys](https://www.reddit.com/r/Silksong/comments/1xrugb8/i_figured_out_the_dlc_guys/)
+- [new leth tweet clarifying the situation. I told you guys.](https://www.reddit.com/r/Silksong/comments/1xrxze7/new_leth_tweet_clarifying_the_situation_i_told/)
+- [Am I mentally ill or do y'all see it as well?](https://www.reddit.com/r/Silksong/comments/1xrzoam/am_i_mentally_ill_or_do_yall_see_it_as_well/)
