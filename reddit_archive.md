@@ -3200,3 +3200,11 @@
 - [I figured out the dlc guys](https://www.reddit.com/r/Silksong/comments/1xrugb8/i_figured_out_the_dlc_guys/)
 - [new leth tweet clarifying the situation. I told you guys.](https://www.reddit.com/r/Silksong/comments/1xrxze7/new_leth_tweet_clarifying_the_situation_i_told/)
 - [Am I mentally ill or do y'all see it as well?](https://www.reddit.com/r/Silksong/comments/1xrzoam/am_i_mentally_ill_or_do_yall_see_it_as_well/)
+
+## 2026-11-11
+### r/Silksong — hot (day)
+- [When I was replaying hollow knight I genuinely died to the radiance like 4 times because of how much it fucked with my Absrad timing](https://www.reddit.com/r/Silksong/comments/1xt2lab/when_i_was_replaying_hollow_knight_i_genuinely/)
+- [THANK YOU LETH!](https://www.reddit.com/r/Silksong/comments/1xsoqfb/thank_you_leth/)
+- [Team Cherry usually signs off for break around December 15. Content usually gets announced a week or two in advance. Thus, ONLY 15-20 DAYS LEFT IN WHICH A RELEASE DATE ANNOUNCEMENT LIKELY WILL OCCUR! News is (coming) SOON!](https://www.reddit.com/r/Silksong/comments/1xsuosk/team_cherry_usually_signs_off_for_break_around/)
+- [Some people asked to see the manual and map](https://www.reddit.com/r/Silksong/comments/1xsytel/some_people_asked_to_see_the_manual_and_map/)
+- [I know that with all the panic surrounding the DLC right now asking this question might seem unnecessary, but I was thinking that Drifter's cloak animation could be even better if it looked something like this with the white fluff visible after getting the Faydown Cloak upgrade. What do y'all think?](https://www.reddit.com/r/Silksong/comments/1xsmb3q/i_know_that_with_all_the_panic_surrounding_the/)
