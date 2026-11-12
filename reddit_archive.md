@@ -3208,3 +3208,11 @@
 - [Team Cherry usually signs off for break around December 15. Content usually gets announced a week or two in advance. Thus, ONLY 15-20 DAYS LEFT IN WHICH A RELEASE DATE ANNOUNCEMENT LIKELY WILL OCCUR! News is (coming) SOON!](https://www.reddit.com/r/Silksong/comments/1xsuosk/team_cherry_usually_signs_off_for_break_around/)
 - [Some people asked to see the manual and map](https://www.reddit.com/r/Silksong/comments/1xsytel/some_people_asked_to_see_the_manual_and_map/)
 - [I know that with all the panic surrounding the DLC right now asking this question might seem unnecessary, but I was thinking that Drifter's cloak animation could be even better if it looked something like this with the white fluff visible after getting the Faydown Cloak upgrade. What do y'all think?](https://www.reddit.com/r/Silksong/comments/1xsmb3q/i_know_that_with_all_the_panic_surrounding_the/)
+
+## 2026-11-12
+### r/Silksong — hot (day)
+- [The manual actually has new Sea of Sorrow artwork](https://www.reddit.com/r/Silksong/comments/1xtmxqz/the_manual_actually_has_new_sea_of_sorrow_artwork/)
+- [Hand-carved sculpture of the Moss Druid that I'm working on. What do you think?](https://www.reddit.com/r/Silksong/comments/1xtn4yj/handcarved_sculpture_of_the_moss_druid_that_im/)
+- [Thank you Team Cherry!](https://www.reddit.com/r/Silksong/comments/1xtsxex/thank_you_team_cherry/)
+- [Schoolgirls Hornet and Lace (by @ovnimiimi)](https://www.reddit.com/r/Silksong/comments/1xtqlw7/schoolgirls_hornet_and_lace_by_ovnimiimi/)
+- [They're getting edged everyday!](https://www.reddit.com/r/Silksong/comments/1xtrbd5/theyre_getting_edged_everyday/)
