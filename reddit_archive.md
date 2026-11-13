@@ -3216,3 +3216,11 @@
 - [Thank you Team Cherry!](https://www.reddit.com/r/Silksong/comments/1xtsxex/thank_you_team_cherry/)
 - [Schoolgirls Hornet and Lace (by @ovnimiimi)](https://www.reddit.com/r/Silksong/comments/1xtqlw7/schoolgirls_hornet_and_lace_by_ovnimiimi/)
 - [They're getting edged everyday!](https://www.reddit.com/r/Silksong/comments/1xtrbd5/theyre_getting_edged_everyday/)
+
+## 2026-11-13
+### r/Silksong — hot (day)
+- [At last, fishing in Silksong (Pharloom Fishing mod release)](https://www.reddit.com/r/Silksong/comments/1xusu82/at_last_fishing_in_silksong_pharloom_fishing_mod/)
+- [I am a chinese honeypot that failed to get anything out of team cherry, Ask me anything!](https://www.reddit.com/r/Silksong/comments/1xud8ji/i_am_a_chinese_honeypot_that_failed_to_get/)
+- [Finished the pendants for my friend!! (I’ve never played either of the games)](https://www.reddit.com/r/Silksong/comments/1xuh6ew/finished_the_pendants_for_my_friend_ive_never/)
+- [Sea of Sorrow Patch Notes](https://www.reddit.com/r/Silksong/comments/1xuntvt/sea_of_sorrow_patch_notes/)
+- [Team Cherry has confirmed that they are still working on Sea of Sorrow](https://www.reddit.com/r/Silksong/comments/1xuc2o1/team_cherry_has_confirmed_that_they_are_still/)
