@@ -3224,3 +3224,11 @@
 - [Finished the pendants for my friend!! (I’ve never played either of the games)](https://www.reddit.com/r/Silksong/comments/1xuh6ew/finished_the_pendants_for_my_friend_ive_never/)
 - [Sea of Sorrow Patch Notes](https://www.reddit.com/r/Silksong/comments/1xuntvt/sea_of_sorrow_patch_notes/)
 - [Team Cherry has confirmed that they are still working on Sea of Sorrow](https://www.reddit.com/r/Silksong/comments/1xuc2o1/team_cherry_has_confirmed_that_they_are_still/)
+
+## 2026-11-14
+### r/Silksong — hot (day)
+- [Look who's back!](https://www.reddit.com/r/Silksong/comments/1xvi6ea/look_whos_back/)
+- [redrew cover-art in my style :P](https://www.reddit.com/r/Silksong/comments/1xvlf58/redrew_coverart_in_my_style_p/)
+- [Did Silksong live up to the hype?](https://www.reddit.com/r/Silksong/comments/1xvrp20/did_silksong_live_up_to_the_hype/)
+- [Yo what even is "Challenge"](https://www.reddit.com/r/Silksong/comments/1xv1o4x/yo_what_even_is_challenge/)
+- [Finally, after countless hours, I mapped out the whole game.](https://www.reddit.com/r/Silksong/comments/1xv3v2o/finally_after_countless_hours_i_mapped_out_the/)
