@@ -3232,3 +3232,11 @@
 - [Did Silksong live up to the hype?](https://www.reddit.com/r/Silksong/comments/1xvrp20/did_silksong_live_up_to_the_hype/)
 - [Yo what even is "Challenge"](https://www.reddit.com/r/Silksong/comments/1xv1o4x/yo_what_even_is_challenge/)
 - [Finally, after countless hours, I mapped out the whole game.](https://www.reddit.com/r/Silksong/comments/1xv3v2o/finally_after_countless_hours_i_mapped_out_the/)
+
+## 2026-11-15
+### r/Silksong — hot (day)
+- [r/silksong users before expecting meaningful discussion about Silksong.](https://www.reddit.com/r/Silksong/comments/1xw49ib/rsilksong_users_before_expecting_meaningful/)
+- [Did they just discover the Citadel IRL💀](https://www.reddit.com/r/Silksong/comments/1xwco8x/did_they_just_discover_the_citadel_irl/)
+- [Minecraft officially adding Poshanka to the game](https://www.reddit.com/r/Silksong/comments/1xwf65f/minecraft_officially_adding_poshanka_to_the_game/)
+- [What the hell is this? Almost shat myself seeing it](https://www.reddit.com/r/Silksong/comments/1xwdn9p/what_the_hell_is_this_almost_shat_myself_seeing_it/)
+- [Geisha Dancer Karmelita (by @rinadromo519)](https://www.reddit.com/r/Silksong/comments/1xw342e/geisha_dancer_karmelita_by_rinadromo519/)
