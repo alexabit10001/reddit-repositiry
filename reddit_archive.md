@@ -3240,3 +3240,11 @@
 - [Minecraft officially adding Poshanka to the game](https://www.reddit.com/r/Silksong/comments/1xwf65f/minecraft_officially_adding_poshanka_to_the_game/)
 - [What the hell is this? Almost shat myself seeing it](https://www.reddit.com/r/Silksong/comments/1xwdn9p/what_the_hell_is_this_almost_shat_myself_seeing_it/)
 - [Geisha Dancer Karmelita (by @rinadromo519)](https://www.reddit.com/r/Silksong/comments/1xw342e/geisha_dancer_karmelita_by_rinadromo519/)
+
+## 2026-11-16
+### r/Silksong — hot (day)
+- [Following up to earlier discovery that this SoS artwork is slightly different, we managed to discover something interesting hidden in it. This might either be a hint or just an error.](https://www.reddit.com/r/Silksong/comments/1xwv4cs/following_up_to_earlier_discovery_that_this_sos/)
+- [They are adding POSHANKA to Minecraft!](https://www.reddit.com/r/Silksong/comments/1xwqz2k/they_are_adding_poshanka_to_minecraft/)
+- [The throwing rings are so cool!!!](https://www.reddit.com/r/Silksong/comments/1xwyr5t/the_throwing_rings_are_so_cool/)
+- [I finally found the token!](https://www.reddit.com/r/Silksong/comments/1xwz6b0/i_finally_found_the_token/)
+- [How close to 0% are the chances of this happening?](https://www.reddit.com/r/Silksong/comments/1xwv4k6/how_close_to_0_are_the_chances_of_this_happening/)
