@@ -3248,3 +3248,11 @@
 - [The throwing rings are so cool!!!](https://www.reddit.com/r/Silksong/comments/1xwyr5t/the_throwing_rings_are_so_cool/)
 - [I finally found the token!](https://www.reddit.com/r/Silksong/comments/1xwz6b0/i_finally_found_the_token/)
 - [How close to 0% are the chances of this happening?](https://www.reddit.com/r/Silksong/comments/1xwv4k6/how_close_to_0_are_the_chances_of_this_happening/)
+
+## 2026-11-17
+### r/Silksong — hot (day)
+- [Following up to earlier discovery that this SoS artwork is slightly different, we managed to discover something interesting hidden in it. This might either be a hint or just an error.](https://www.reddit.com/r/Silksong/comments/1xwv4cs/following_up_to_earlier_discovery_that_this_sos/)
+- [Dap Me Up Atla!](https://www.reddit.com/r/Silksong/comments/1xxz2l0/dap_me_up_atla/)
+- [Sea of sorrow release date](https://www.reddit.com/r/Silksong/comments/1xxvrak/sea_of_sorrow_release_date/)
+- [Assuming eveything is fake is not animal instincts](https://www.reddit.com/r/Silksong/comments/1xxqmt0/assuming_eveything_is_fake_is_not_animal_instincts/)
+- [Naked hornet !!!](https://www.reddit.com/r/Silksong/comments/1xxtjzc/naked_hornet/)
