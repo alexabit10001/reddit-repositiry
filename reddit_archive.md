@@ -3256,3 +3256,6 @@
 - [Sea of sorrow release date](https://www.reddit.com/r/Silksong/comments/1xxvrak/sea_of_sorrow_release_date/)
 - [Assuming eveything is fake is not animal instincts](https://www.reddit.com/r/Silksong/comments/1xxqmt0/assuming_eveything_is_fake_is_not_animal_instincts/)
 - [Naked hornet !!!](https://www.reddit.com/r/Silksong/comments/1xxtjzc/naked_hornet/)
+
+## 2026-11-18
+### r/Silksong — hot (day)
